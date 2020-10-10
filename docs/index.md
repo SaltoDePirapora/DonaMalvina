@@ -1,9 +1,9 @@
 ---
 lang: pt-BR
 
-title: "Carlinhos da Malvina: Algumas Histórias"
+#title: "Carlinhos da Malvina: Algumas Histórias"
 
-date: '10 de outubro de 2020, 14:16:23'
+date: '10 de outubro de 2020, 15:05:31'
 summary_depth: 5
 summary_float:
    collapsed: false
@@ -21,11 +21,12 @@ github-repo: Vermelho2/DonaMalvina
 description: "JAZZ, BLUES, MPB, VIAGENS, COMIDINHAS, FILMES E OUTRAS DIVAGAÇÕES BY CARLINHOS DA MALVINA, UM BOM VIVANT NA SUA PRÓPRIA DEFINIÇÃO"
 ---
 
-# __________________________________________ {-}
+#        Carlinhos da Malvina: Algumas Histórias    {-}
+
 <center>
 <span style="color:red">**Autor: Carlos Antunes de Souza**   
 
-## _______________________________________________ {-}
+##  {-}
 <center>
 <span style="color:blue">**JAZZ, BLUES, MPB, VIAGENS, COMIDINHAS, FILMES E OUTRAS DIVAGAÇÕES BY CARLINHOS DA MALVINA, UM BOM VIVANT NA SUA PRÓPRIA DEFINIÇÃO**
 </center>

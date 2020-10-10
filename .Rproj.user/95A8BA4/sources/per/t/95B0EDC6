@@ -5,13 +5,15 @@
     "dirty" : false,
     "encoding" : "UTF8",
     "folds" : "",
-    "hash" : "1513268127",
+    "hash" : "3633378294",
     "id" : "95B0EDC6",
-    "lastKnownWriteTime" : 1601319166,
-    "last_content_update" : 1601319166,
+    "lastKnownWriteTime" : 1602353128,
+    "last_content_update" : 1602353128883,
     "path" : "~/GitHub/DonaMalvina/index.Rmd",
     "project_path" : "index.Rmd",
     "properties" : {
+        "cursorPosition" : "23,9",
+        "scrollLine" : "0"
     },
     "relative_order" : 1,
     "source_on_save" : false,
