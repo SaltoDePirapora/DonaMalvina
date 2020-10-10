@@ -1,6 +1,5 @@
 ---
 lang: pt-BR
-date: '10 de outubro de 2020, 15:18:14'
 summary_depth: 5
 summary_float:
    collapsed: false
@@ -14,7 +13,7 @@ bibliography: [book.bib]
 
 suppress-bibliography: false
 link-citations: no
-github-repo: Vermelho2/DonaMalvina
+github-repo: SaltoDePirapora/DonaMalvina
 description: "JAZZ, BLUES, MPB, VIAGENS, COMIDINHAS, FILMES E OUTRAS DIVAGAÇÕES BY CARLINHOS DA MALVINA, UM BOM VIVANT NA SUA PRÓPRIA DEFINIÇÃO"
 ---
 
@@ -23,7 +22,7 @@ description: "JAZZ, BLUES, MPB, VIAGENS, COMIDINHAS, FILMES E OUTRAS DIVAGAÇÕE
 <center>
 <span style="color:red">**Autor: Carlos Antunes de Souza** 
 ```
-10 de outubro de 2020, 15:18:14
+10 de outubro de 2020, 15:32:21
 ```
 ##  {-}
 <center>

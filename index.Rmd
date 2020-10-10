@@ -1,6 +1,5 @@
 ---
 lang: pt-BR
-date: '`r format(Sys.time(), "%d de %B de %Y, %X")`'
 summary_depth: 5
 summary_float:
    collapsed: false
@@ -14,7 +13,7 @@ bibliography: [book.bib]
 
 suppress-bibliography: false
 link-citations: no
-github-repo: Vermelho2/DonaMalvina
+github-repo: SaltoDePirapora/DonaMalvina
 description: "JAZZ, BLUES, MPB, VIAGENS, COMIDINHAS, FILMES E OUTRAS DIVAGAÇÕES BY CARLINHOS DA MALVINA, UM BOM VIVANT NA SUA PRÓPRIA DEFINIÇÃO"
 ---
 
