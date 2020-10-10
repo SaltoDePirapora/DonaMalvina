@@ -1,9 +1,6 @@
 ---
 lang: pt-BR
-
-#title: "Carlinhos da Malvina: Algumas Histórias"
-
-date: '10 de outubro de 2020, 15:05:31'
+date: '10 de outubro de 2020, 15:18:14'
 summary_depth: 5
 summary_float:
    collapsed: false
@@ -24,8 +21,10 @@ description: "JAZZ, BLUES, MPB, VIAGENS, COMIDINHAS, FILMES E OUTRAS DIVAGAÇÕE
 #        Carlinhos da Malvina: Algumas Histórias    {-}
 
 <center>
-<span style="color:red">**Autor: Carlos Antunes de Souza**   
-
+<span style="color:red">**Autor: Carlos Antunes de Souza** 
+```
+10 de outubro de 2020, 15:18:14
+```
 ##  {-}
 <center>
 <span style="color:blue">**JAZZ, BLUES, MPB, VIAGENS, COMIDINHAS, FILMES E OUTRAS DIVAGAÇÕES BY CARLINHOS DA MALVINA, UM BOM VIVANT NA SUA PRÓPRIA DEFINIÇÃO**
