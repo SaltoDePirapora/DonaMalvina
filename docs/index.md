@@ -20,13 +20,14 @@ description: "JAZZ, BLUES, MPB, VIAGENS, COMIDINHAS, FILMES E OUTRAS DIVAGAÇÕE
 #        Carlinhos da Malvina: Algumas Histórias    {-}
 
 <center>
-<span style="color:red">**Autor: Carlos Antunes de Souza** 
 ```
-14 de outubro de 2020, 16:29:57
+14 de outubro de 2020, 16:50:56
 ```
 ##  {-}
 <center>
 <span style="color:blue">**JAZZ, BLUES, MPB, VIAGENS, COMIDINHAS, FILMES E OUTRAS DIVAGAÇÕES BY CARLINHOS DA MALVINA, UM BOM VIVANT NA SUA PRÓPRIA DEFINIÇÃO**
+<div style>![](Imagens/O Degas.jpg)</div>
+<span style="color:red">**Autor: Carlos Antunes de Souza** 
 </center>
 
 # Introdução
