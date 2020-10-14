@@ -22,7 +22,7 @@ description: "JAZZ, BLUES, MPB, VIAGENS, COMIDINHAS, FILMES E OUTRAS DIVAGAÇÕE
 <center>
 <span style="color:red">**Autor: Carlos Antunes de Souza** 
 ```
-10 de outubro de 2020, 15:32:21
+14 de outubro de 2020, 16:29:57
 ```
 ##  {-}
 <center>

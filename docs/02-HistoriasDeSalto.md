@@ -187,7 +187,31 @@ O Neto, na verdade, era um cinéfilo só que, economicamente, era inviável ele 
 Outro programa legal era descer para o “campo de bola” nos domingos à tarde antes no peladão do Bumbo e depois no Estádio Municipal, praticamente exclusivo dos Parados. A terminologia das posições era “gortipa” (goal keeper) o goleiro, centroflôr (center for) era o centro avante, furbéque, (full beck) era o béque. 
 
 ##O time dos Parados
-Depois veio o time dos Parados. Ganhou esse apelido porquê formaram o time com os jogadores que por não gostarem da sistemática autoritária e impositiva dos dirigentes compostos pelas famílias dos Marcelos, todos ruins de bola e pela família do João da Nhá Cota, igualmente pernas de pau, pararam de jogar e por falta de opção ficaram “parados”. Alguém teve a ideia de juntar esses atletas que no geral eram realmente os “bons de bola” e formar um novo time que por falta de idéia melhor ficou como “time dos Parados” mesmo e foi um sucesso. Extrapolou os estreitos limites do futebol amador da época, tornando-se conhecido e respeitado em Tatuí, Capela do Alto, Piedade e Pilar do Sul e outras tantas cidades da região. Respeitados pelo futebol e por não temerem uma boa briga em campo. O time foi comandado pelo Neguito e pelo Paulo Padeiro. 
+Depois veio o time dos Parados. 
+<center> 
+          
+<div style>![](Imagens/time dos Parados2.jpeg)</div>
+    
+**O imbatível *scratch* do final dos anos 1960**
+ 
+</center>
+ 
+Saiba que são os craques da foto, pela ordem:
+
+**Mirto Pêxe** - goleiro - era um peixe de agilidade.      
+**Ataliba** - o do Armazém e da Igreja - Realizava até cerimônias fúnebres na ausência do padre.    
+**Japão** - seu nome era o brasileiríssimo Moacir, mas a cara era de japonês.       
+**Dorfão** - ou Gastão, como ele próprio gostava de ser chamado. Filho do Argemirão da Belarmino.    
+**Laurinho** - Está vivo ainda. Já contamos que era o *mercenário da bola*.    
+**Cabo Jorge** - Também vivo. Pai do Jorginho e marido da Elza. Foi um dos maiores briguentos dos Parados, junto com o Moacir Japão.    
+**Zito** - Elesbão Gonçalves, pai do Junick e do Roger.    
+**João Turco** - já contamos todo o seu *folclorismo*.    
+**Lagarto** - Hábil driblador bem como o irmão Lagartinho.    
+**Butija** - meio de campo baixinho que *cruzava* na medida na cabeça do joão Turco.     
+**Jaiminho Vigorelli** - Era uma máquina de costura para driblar.      
+       
+
+O time ganhou esse apelido porque formaram o time com os jogadores que, por não gostarem da sistemática autoritária e impositiva dos dirigentes compostos pelas famílias dos Marcelos, todos ruins de bola e pela família do João da Nhá Cota, igualmente pernas de pau, pararam de jogar e por falta de opção ficaram “parados”. Alguém teve a ideia de juntar esses atletas que no geral eram realmente os “bons de bola” e formar um novo time que por falta de idéia melhor ficou como “time dos Parados” mesmo e foi um sucesso. Extrapolou os estreitos limites do futebol amador da época, tornando-se conhecido e respeitado em Tatuí, Capela do Alto, Piedade e Pilar do Sul e outras tantas cidades da região. Respeitados pelo futebol e por não temerem uma boa briga em campo. O time foi comandado pelo Neguito e pelo Paulo Padeiro. 
 Dos cracaços que me lembro tinha o Nardo, goleiro, um gigante no gol. O Botija irmão do Peixoto, excelente para fazer cruzamentos e alçar a bola na medida da cabeça do João Turco, o terror dos beques e dos goleiros: subia para escabecear a mais de meio metro da altura dos adversários e ainda os cutucava, xingava e até passava a mão na bunda, quando o juiz não estava olhando. Os beques eram o Ataliba (o do armazém e da igreja), o Odair e o Furazóio. Meio de campo Cabo Jorge, encrenqueiro e briguento, junto com o Moacir Japão, outro que adorava uma encrenca. O centroavante era o Manezinho, que não era de Salto. Parece que veio do Vau Novo onde o Matarazzo tinha uma unidade. Ponta esquerda Áureo (o próprio, ex Bertilha) e depois o Edson Careca, filho do Zequinha Barbeiro. Outros craques de fora também jogaram pelos Parados: o Fernando de Boituva, funcionário do Bamerindus, o Gão de Sorocaba.    
 O Áureo não era exatamente um craque da bola. Jogava na ponta esquerda e fazia bons cruzamentos na área sempre buscando a altura do João Turco. O Áureo era mais famoso por ser uma figura folclórica, cheio de maneirismos para falar inventando um vocabulário próprio. O João Turco contava que quando precisou cortar um pedaço do cordão da chuteira que estava incomodando parou o treino e perguntou: “Alguém por acaso tem um caniffs?????. Ele queria dizer um canivete. Também sempre contado ou inventado pelo João Turco quando o pessoal de Salto foi pela primeira vez para a praia numa excursão montada pelo João do Vito, ao chegar na represa Billings, ou seja a cerca de 50 quilômetros do mar o Áureo desceu do ônibus com uma toalha nas costas cantando: “Esse mal (mar) é meu” crente que já estava na praia: nunca tinha visto o mar e muito menos sabia da existência da represa Billings. 
 O Laurinho dizem que pedia dinheiro prá entrar em campo. Senão, tava com dor de barriga ou com câimbra. Bastava o Paulo Padeiro acenar com uma nota de cinquentinha na moeda da época que ele melhorava rapidinho. Tinha ainda o Cabo Jorge, o Moacir Japão, os dois que não tinham medo de cara feia e partiam prá porrada mesmo. Mais tarde o Japãozinho(Cipriano) e bem mais tarde o Waldemar Picolé, Orlandinho , Flavinho (Deus que azude, tô sastifeito), o Lagarto, grande driblador e o irmão Lagartinho. O Beninha do Leonel, trabalhava na Cosipa e jogava também. Arrumou muita “ingrisia”. Chegou a dar uma cabeçada na boca de um juiz, extraindo dele um dente que voou no gramado e o juiz catou na grama e exibia para mostrar a agressão sofrida. O Beninha depois de ter uma falta marcada tomou a bola nas mãos e se dirigiu ao juiz para, supostamente, entregar a bola para ser colocada na marca da cobrança de falta mas, quando o juiz foi pegar a bola, ele a tirou de lado e desferiu uma certeira cabeçada, fazendo a extração sem anestesia. E olha, que o Beninha era baixinho como eu. Imagine se fosse grande.     
