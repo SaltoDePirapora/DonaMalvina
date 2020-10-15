@@ -21,16 +21,15 @@ description: "JAZZ, BLUES, MPB, VIAGENS, COMIDINHAS, FILMES E OUTRAS DIVAGAÇÕE
 
 <center>
 ```
-14 de outubro de 2020, 16:50:56
+15 de outubro de 2020, 11:44:55
 ```
-##  {-}
 <center>
 <span style="color:blue">**JAZZ, BLUES, MPB, VIAGENS, COMIDINHAS, FILMES E OUTRAS DIVAGAÇÕES BY CARLINHOS DA MALVINA, UM BOM VIVANT NA SUA PRÓPRIA DEFINIÇÃO**
 <div style>![](Imagens/O Degas.jpg)</div>
 <span style="color:red">**Autor: Carlos Antunes de Souza** 
 </center>
 
-# Introdução
+# Introdução {-}
 <div style="text-align: justify">
 Muito bem: não tenho a menor pretensão de arrastar seguidores então vou escrevendo e mudando de assunto sem preocupação com a ordem cronológica ou um roteiro estudado ou pré estabelecido. A ideia é fazer apenas um registro de todas as experiências boas que vivi, assisti ou presenciei. Como já vivi bastante e pretendo viver muito mais, vou ter muita história para contar. Em matéria de viver eu quero dar VDO como se dizia no tempo do fusca que só marcava 120 km/h e depois embaixo estava escrito VDO que seria 140 ou 150 km/h.      
 Veja que este não é um livro de História no sentido científico da palavra e, portanto, está sujeito as traições da minha memória. Sinta-se a vontade para nos comunicar algum deslize ou falha nas nossas recordações.     
