@@ -21,11 +21,11 @@ description: "JAZZ, BLUES, MPB, VIAGENS, COMIDINHAS, FILMES E OUTRAS DIVAGAÇÕE
 
 <center>
 ```
-17 de outubro de 2020, 16:57:39
+20 de outubro de 2020, 17:14:09
 ```
 <center>
 <span style="color:blue">**JAZZ, BLUES, MPB, VIAGENS, COMIDINHAS, FILMES E OUTRAS DIVAGAÇÕES BY CARLINHOS DA MALVINA, UM BOM VIVANT NA SUA PRÓPRIA DEFINIÇÃO**
-<div style>![](Imagens/O Degas.jpg)</div>
+<div style="width:50%">![](Imagens/O Degas.jpg)</div>
 <span style="color:red">**Autor: Carlos Antunes de Souza** 
 </center>
 

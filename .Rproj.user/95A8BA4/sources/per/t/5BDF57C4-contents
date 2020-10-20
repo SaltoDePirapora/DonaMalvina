@@ -472,11 +472,57 @@ Procurei fazer um registro das gírias e maneirismos que ouvi na convivência co
 - **DIZER QUE VAI CHOVER:** Tá clamariano (calmariando:parando o vento). Se jeito regula, vai chovê. Tá cum revolução de chuva. Tá trovejano. São Pedro tá mudando os móve no céu. Mira, Diós está fotografando nuestra tierra (Argentinos metidos).  Tá vazano gente p´o ladrão. 
 - **DESIGNAR EFERVESCÊNCIA:** Tá fervido(Sorocabanice). Tá bombano. Tá bombaninho.     
 - **A MARDITA DA ERVA:** Dar um tapa na cara da onça. Empinar pipa na laje. Suave na nave.     
-- **LEMBRAR DO PEDRO ORIVE:** Caipira do rabo grosso. Tá enganado com a cor da chita. Quem abaixa demais mostra a bunda. Tá inganado c´a cor da chita. Feio é robá e num podê carregá. Saiu c´uma quente e duas fervendo. Comeu gato por lebre. Bobo era 7, morreu 8. Sujeito ladino. O boi disguaritô p´o mato. Se jeito regula, vai chovê. Pau de virá tripa(sujeito muito magro). Feio é pinto que nasce pelado. Feio é robá i num podê carregá. O bobo raleia, mais num fáia. Num soco só: Pedro Orive usava essa expressão quando ia movimentar um pau pesado com 3 ou mais pessoas e a expressão era no sentido de todo mundo fazer força, ou *forcejar* no mesmo momento e ritmo. REGATÊRA: Ih, essa égua tá muito regatêra hoje. Quando o animal não deixava pegar no pasto ou quando “refugava” na lida com o gado. BOA SIBÉRIA: Não sei de onde meu pai tirou essa. Quando alguém ia viajar ou alguém “de casa” estava saindo ele usava essa saudação. Talvez nem tivesse causa ou explicação.RANRULLE: Quando ele foi para São Paulo, na estação de trem tinha um vendedor de jornais que anunciava em altos brados o nome do jornal  italiano “FANFULLA” da seguinte forma: Rio de Janeiro, São Paulo, Belo horizonte: *FANFULLA* e prosseguia para a Europa: Lisboa, Madri, Londres: *FANFULLA*. Anunciava que o vespertino trazia notícias do Brasil e do mundo inteiro e meu pai imitava o vendedor com a palavra que ele assimilou: *RANRULLE*. PORCA CABANA: meu irmão Crizólito levou o papai passear no Rio de Janeiro e ele voltou todo garboso contando dos lugares que ele conheceu inclusive a praia de *PORCA CABANA*, no seu registro pessoal para *COPACABANA.* E contava isso na barbearia e nas conversas e eu tive que aguentar muita gozação por conta disso mas, depois passei a achar muito engraçado a sua criatividade. Cabano ou cabana  seria um boi ou vaca sem chifres então mais ainda que o sentido se complica. O VIRADO DE OVO: o Pedro Orive era muito guloso e nas suas andanças nos sertões de Piedade e Ibiuna, a cavalo com seu ponche, chapéu, revolver Colt Cavalinho (ah como eu queria tê-lo guardado pois é arma de coleção) *pediu poso* num conhecido na beira da estrada. Foi bem recebido e no dia seguinte, logo cedo foi convidado a se sentar à mesa para usufruir de um lauto café da manhã. No centro da mesa uma travessa transbordando de “virado de ovo”. Para quem nunca comeu são ovos estalados com queijo branco e farinha de milho. Iguaria caipira inesquecível. Ele adorava e puxou a travessa e lotou um prato fundo já salivando a boca para atacar a apetitosa e fumegante comida. Quando deu a primeira colherada veio a surpresa: faziam o virado com açúcar e não com sal como ele estava acostumado. Com vergonha de devolver, teve que ir engolindo devagar sorvendo “canecadas de café para fazer rodar o virado prá dentro do bucho”. Dona Marvina tripudiava depois: “Tá vendo hóme guloso, tinha que inchê o prato: Bem feito”. E ele soltava sonoras gargalhadas. A SALA INCLINADA: Num outro *pôso* viajando com o meu irmão Salvador arrumaram colchões no chão para que eles dormissem na sala. Só que a mesma era em desnível e eles rolavam para o canto mais baixo da sala. Tudo virou *causo* e risadas depois.DISCADERADO, C´UM DOR NOS QUARTO: Quando ele sentia dores nas costas usava essas expressões. Era comum dizer que “estava com dor nas cadeiras” ou “com dor nos quarto” que na verdade denomina as costas do boi que tem o quarto dianteiro e o quarto traseiro.            
 - **COISA RUIM:** Cosaruim - assim mesmo tudo emendado e pronunciado rapidamente. Designa criança malvada ou sujeito ruim mesmo.    
 - **SUJEITO DE MÁ ÍNDOLE:** Ruim de fio. Foice, enxada, maxado ou outra ferramenta que não está bem afiada está *ruim de fio*.o *fio* é a lâmina cortante de uma ferramenta.    
--**INDEIS:** Quando a galinha botava no mato ou na capoeira e quando se  achava o ninho não era prudente retirar todos os ovos pois ela mudaria o local do ninho, dando uma “trabalheira” para localizar o novo ninho. Retiravam-se os ovos, deixando apenas um que era chamado de “indeis”, na verdade uma corruptela de “um deles“. Descobri agora no fantástico Google. Outra grafia possíve: indez.    
--**RESSALTAR QUALIDADE:** O TUFO DE BÃO – Esse foi um *maneirismo saltopiraporês* que nunca ouvi fora daqui. Exemplos: Esse carro é o tufo de bão. Esse cavalo é o tufo de bão na lida. 
+- **INDEIS:** Quando a galinha botava no mato ou na capoeira e quando se  achava o ninho não era prudente retirar todos os ovos pois ela mudaria o local do ninho, dando uma “trabalheira” para localizar o novo ninho. Retiravam-se os ovos, deixando apenas um que era chamado de “indeis”, na verdade uma corruptela de “um deles“. Descobri agora no fantástico Google. Outra grafia possível: indez.    
+- **RESSALTAR QUALIDADE:** O TUFO DE BÃO – Esse foi um *maneirismo saltopiraporês* que nunca ouvi fora daqui. Exemplos: Esse carro é o tufo de bão. Esse cavalo é o tufo de bão na lida. 
 
+**EXPRESSÕES SALTOPIRAPORENCES**
 
+- **FOGO DE PÁIA:** Muito usada para quem começa uma tarefa com muito embalo e desiste logo em seguida. O fogo de palha é fugaz e não tão duradouro e constante quanto o de lenhas grossas ou toras.     
+- **RODÔ:** Perdeu a hora: Hoje *rodei* e perdi a condução.    
+- **DISGUIÔ NA CARRÊRA:** Se perdeu no caminho. A “carrêra” é uma aposta de corrida de cavalos ou mesmo de pedestrianismo. Também significa falta de persistência na tarefa que se propôs a fazer.     
+- **REVOLUÇÃO DE CHUVA:** Quando o tempo *vira* ou quando está *carmariano* como já explicamos.      
+- **SANGRIA DISATADA:** “Num percisa saí correno, num é sangria disatada”. A sangria é um ferimento que levou uma atadura de pano e se desatada pode levar à hemorragia. Ou seja precisa sair correndo para estancar o sangue, ou a sangria.      
+- **NUM É ZÓIO DE SANTO:** Não precisa buscar a perfeição. Conta-se que antigamente um dos esconderijos para o dinheiro era dentro das estátuas sacras e esses valores eram introduzidos pelos olhos do santo. Assim sendo, tinham que ter um acabamento perfeito para não despertar desconfiança de que continham valores escondidos.     
+- **A CONVERSA AINDA NÃO CHEGOU NA COZINHA:** Quando alguém dava um *pitaco* na conversa, que não era de sua alçada se respondia assim emulando que a conversa da sala de estar estava restrita à mesma e não deveria vazar para a cozinha, leia-se para os serviçais.      
+
+**MARVINICES**
+
+Dona Marvina também tinha seus “ditos” e expressões peculiares!!
+
+- **MEIO AÉREO:** Quando se referia à uma pessoa meio desligada, meio *por fora*.      
+- **BISCOITO DE SORDADO:** Para designar, delicadamente, o sujeito  *pão duro*.  O soldado ia para a guerra e para se garantir guardava uns biscoitos no seu farnel. Com o tempo esses biscoitos ficavam muito duros e secos, daí a analogia com o pão duro.     
+- **BOA BISCA:** Aquele sujeito não é boa bisca.    
+- **ISPICULA MACHO:** Para meninos que viviam fazendo perguntas o tempo todo. Imagino que o ispicula venha de especular, indagar, pergunta.     
+- **MEIO AÉREO:** Para sujeito desligado, por fora, ou seja que vive voando baixo.    
+- **MIJÔ FORA DA PICHORRA:** Deu pá tráis, deu bola fora, não sustentou o que tinha dito.    
+- **NÃO DÁ PARA TIRAR LEITE DE PEDRA:** Não dá para fazer milagres. O dinheiro acabou, não tem como fabricar.    
+
+**PEDRO ORIVICES:** 
+
+O vocabulário do Pedro Orives era bem característico, peculiar e criativo!
+
+- **CAIPIRA DO RABO GROSSO:**     
+- **TÁ ENGANADO COM A COR DA CHITA:**    
+- **QUEM ABAIXA DEMAIS MOSTRA A BUNDA:**     
+- **TÁ INGANADO C´A COR DA CHITA:**    
+- **FEIO É ROBÁ E NUM PODÊ CARREGÁ:**     
+- **SAIU C´UMA QUENTE E DUAS FERVENO:**     
+- **COMEU GATO POR LEBRE:**    
+- **BOBO ERA 7, MORREU 8:** Sujeito ladino.     
+- **O BOI DISGUARITÔ P´O MATO:**    
+- **SE JEITO REGULA, VAI CHOVÊ:**     
+- **PAU DE VIRÁ TRIPA:** Suleito muito magro.     
+- **FEIO É PINTO QUE NASCE PELADO:**     
+- **FEIO É ROBÁ I NUM PODÊ CARREGÁ:**    
+- **O BOBO RALEIA, MAIS NUM FÁIA:**    
+- **NUM SOCO SÓ:** Pedro Orive usava essa expressão quando ia movimentar um pau pesado com 3 ou mais pessoas e a expressão era no sentido de todo mundo fazer força, ou *forcejar* no mesmo momento e ritmo.          
+- **REGATÊRA:** Ih, essa égua tá muito regatêra hoje. Quando o animal não deixava pegar no pasto ou quando *refugava* na lida com o gado.     
+- **BOA SIBÉRIA:** Não sei de onde meu pai tirou essa. Quando alguém ia viajar ou alguém “de casa” estava saindo ele usava essa saudação. Talvez nem tivesse causa ou explicação.    
+- **RANRULLE:** Quando ele foi para São Paulo, na estação de trem tinha um vendedor de jornais que anunciava em altos brados o nome do jornal  italiano “FANFULLA” da seguinte forma: Rio de Janeiro, São Paulo, Belo horizonte: *FANFULLA* e prosseguia para a Europa: Lisboa, Madri, Londres: *FANFULLA*. Anunciava que o vespertino trazia notícias do Brasil e do mundo inteiro e meu pai imitava o vendedor com a palavra que ele assimilou: *RANRULLE*.     
+- **PORCA CABANA:** meu irmão Crizólito levou o papai passear no Rio de Janeiro e ele voltou todo garboso contando dos lugares que ele conheceu inclusive a praia de *PORCA CABANA*, no seu registro pessoal para *COPACABANA.* E contava isso na barbearia e nas conversas e eu tive que aguentar muita gozação por conta disso mas, depois passei a achar muito engraçado a sua criatividade. Cabano ou cabana  seria um boi ou vaca sem chifres então mais ainda que o sentido se complica. 
+- **O VIRADO DE OVO:** o Pedro Orive era muito guloso e nas suas andanças nos sertões de Piedade e Ibiuna, a cavalo com seu ponche, chapéu, revolver Colt Cavalinho (ah como eu queria tê-lo guardado pois é arma de coleção) *pediu poso* num conhecido na beira da estrada. Foi bem recebido e no dia seguinte, logo cedo foi convidado a se sentar à mesa para usufruir de um lauto café da manhã. No centro da mesa uma travessa transbordando de “virado de ovo”. Para quem nunca comeu são ovos estalados com queijo branco e farinha de milho. Iguaria caipira inesquecível. Ele adorava e puxou a travessa e lotou um prato fundo já salivando a boca para atacar a apetitosa e fumegante comida. Quando deu a primeira colherada veio a surpresa: faziam o virado com açúcar e não com sal como ele estava acostumado. Com vergonha de devolver, teve que ir engolindo devagar sorvendo “canecadas de café para fazer rodar o virado prá dentro do bucho”. Dona Marvina tripudiava depois: “Tá vendo hóme guloso, tinha que inchê o prato: Bem feito”. E ele soltava sonoras gargalhadas.      
+- **A SALA INCLINADA:** Num outro *pôso* viajando com o meu irmão Salvador arrumaram colchões no chão para que eles dormissem na sala. Só que a mesma era em desnível e eles rolavam para o canto mais baixo da sala. Tudo virou *causo* e risadas depois.     
+- **DISCADERADO, C´UM DOR NOS QUARTO:** Quando ele sentia dores nas costas usava essas expressões. Era comum dizer que “estava com dor nas cadeiras” ou “com dor nos quarto” que na verdade denomina as costas do boi que tem o quarto dianteiro e o quarto traseiro.       
 
