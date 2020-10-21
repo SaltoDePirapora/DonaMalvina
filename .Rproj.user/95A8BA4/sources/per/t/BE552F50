@@ -5,15 +5,15 @@
     "dirty" : false,
     "encoding" : "UTF8",
     "folds" : "",
-    "hash" : "1368160129",
+    "hash" : "1310721824",
     "id" : "BE552F50",
-    "lastKnownWriteTime" : 1603224770,
-    "last_content_update" : 1603224770946,
+    "lastKnownWriteTime" : 1603288059,
+    "last_content_update" : 1603288059637,
     "path" : "~/GitHub/DonaMalvina/01-OsOurive.Rmd",
     "project_path" : "01-OsOurive.Rmd",
     "properties" : {
-        "cursorPosition" : "3,0",
-        "scrollLine" : "0"
+        "cursorPosition" : "144,208",
+        "scrollLine" : "139"
     },
     "relative_order" : 4,
     "source_on_save" : false,

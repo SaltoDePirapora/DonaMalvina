@@ -5,15 +5,15 @@
     "dirty" : false,
     "encoding" : "UTF8",
     "folds" : "",
-    "hash" : "369507609",
+    "hash" : "3232147575",
     "id" : "5BDF57C4",
-    "lastKnownWriteTime" : 1603223865,
-    "last_content_update" : 1603223865725,
+    "lastKnownWriteTime" : 1603285733,
+    "last_content_update" : 1603285733556,
     "path" : "~/GitHub/DonaMalvina/02-HistoriasDeSalto.Rmd",
     "project_path" : "02-HistoriasDeSalto.Rmd",
     "properties" : {
-        "cursorPosition" : "498,26",
-        "scrollLine" : "487"
+        "cursorPosition" : "376,1073",
+        "scrollLine" : "374"
     },
     "relative_order" : 3,
     "source_on_save" : false,
