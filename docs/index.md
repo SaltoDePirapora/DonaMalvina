@@ -3,10 +3,12 @@ lang: pt-BR
 summary_depth: 5
 summary_float:
    collapsed: false
+geometry: "left=2cm,right=2cm,top=2cm,bottom=2cm"
 site: bookdown::bookdown_site
 
 output: 
    bookdown::gitbook: default
+   #bookdown::pdf_book: default
 documentclass: book
   
 bibliography: [book.bib]
@@ -21,7 +23,7 @@ description: "JAZZ, BLUES, MPB, VIAGENS, COMIDINHAS, FILMES E OUTRAS DIVAGAÇÕE
 
 <center>
 ```
-21 de outubro de 2020, 10:47:42
+25 de novembro de 2020, 16:31:43
 ```
 <center>
 <span style="color:blue">**JAZZ, BLUES, MPB, VIAGENS, COMIDINHAS, FILMES E OUTRAS DIVAGAÇÕES BY CARLINHOS DA MALVINA, UM BOM VIVANT NA SUA PRÓPRIA DEFINIÇÃO**

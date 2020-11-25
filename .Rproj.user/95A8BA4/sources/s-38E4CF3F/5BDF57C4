@@ -1,0 +1,22 @@
+{
+    "collab_server" : "",
+    "contents" : "",
+    "created" : 1602699841602.000,
+    "dirty" : false,
+    "encoding" : "UTF8",
+    "folds" : "",
+    "hash" : "3232147575",
+    "id" : "5BDF57C4",
+    "lastKnownWriteTime" : 1603285733,
+    "last_content_update" : 1603285733556,
+    "path" : "~/GitHub/DonaMalvina/02-HistoriasDeSalto.Rmd",
+    "project_path" : "02-HistoriasDeSalto.Rmd",
+    "properties" : {
+        "cursorPosition" : "376,1073",
+        "scrollLine" : "0"
+    },
+    "relative_order" : 3,
+    "source_on_save" : false,
+    "source_window" : "",
+    "type" : "r_markdown"
+}
