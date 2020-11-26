@@ -107,6 +107,13 @@ Pio Leyva;
 Anga Diaz;     
 Omara Portuondo – esta gravou um CD com Maria Bethania.
 
+### Astor Piazolla 
+A música de Piazolla sempre me emocionou e até me levava às lágrimas. Quando a violinista Michele Ortega fazia apresentações na Padaria Real da Avenida Afonso Vergueiro, às segundas feiras eu era freguês de carteirinha e sempre pedia Piazolla e sempre chorava durante a execução. Não sei explicar bem mas a música toca o fundo da minha alma e mexe com as minhas articulações: não consigo ficar parado, acompanho os compassos com a cabeça e partes do corpo e não raro não me contenho e puxo a parceira para dançar, mesmo num espaço exíguo entre as mesas. Os acordes vibrantes, a marcação exacerbada fazem vibrar todas as minhas terminações nervosas.     
+Vi agora (15/10/2020 às 23:45 h) Piazolla executado por Richard Galliano e seu septeto. A marcação do acordeon ou do bandoneon secundado por um trio de violinos mais piano e percussão se transformam numa melodia maviosa, quase celestial. O melhor intérprete de Piazolla sempre foi o próprio mas deixou discípulos como Lalo Schifrin que comandou sua banda, ao piano, por muito tempo e  depois alçou voo solo. Quando ouço [Adiós nonino](https://www.youtube.com/watch?v=bfDOSgEmjRE), aqui numa interpretação do grupo intrumental brasileiro *Seis com Casca*, [Libertango](https://www.youtube.com/watch?v=MepPfI7ebMY), aqui executada pelo 
+próprio e grupo e [Balada para un loco](https://www.youtube.com/watch?v=w0mKWBoRLpw), aqui por Amelita Baltar, sinto que transmitem uma carga emocional muito grande.      Seu estilo com grande influência de Bach e Stravinsky foi muito criticado no país natal e a comunidade “tangueira” se recusava a aceitar suas composições como tango. Mas, a grande verdade é que ele revolucionou completamente o tango, acrescentando os toques do jazz e da música clássica e incluindo a guitarra elétrica  no acompanhamento, o que era uma heresia para os tradicionalistas. Aos 8 anos de idade, morando em Nova York,  já com seu primeiro bandoneon que ganhou do pai, teve um encontro com Carlos Gardel que se encantou com o garotinho e o convidou para participar da sua turnê mas seus pais não permitiram. Ainda bem, porquê pouco depois Gardel e sua banda morreriam em um acidente de avião.      
+Richard Galliano é um acordeonista francês de herança italiana, nascido em 12/12/1.950 em Cannes na França. Sua performance em “La história de um amor” é digna de menção.       
+Astor Pantaleón Piazolla foi um bandoneonista e compositor argentino que nasceu em 11/3/1.921 em Mar del Plata e faleceu em 4/7/1.992 em Buenos Aires.
+   
 ## Música Brasileira
 
 ### O furacão Elis (livro de Regina Echerrevia)
@@ -375,6 +382,118 @@ Neste show Gil se faz acompanhar de músicos de altíssima competência:
 
 **Orquestra Petrobras Sinfônica** - Comandada pelo jovem e elegante regente da Orquestra Sinfônica da Bahia, CARLOS PRAZERES, que conduz com, muita segurança, o seu corpo técnico apresentando um riquíssimo fundo musical, o que chamo de a “turma da cozinha”, regendo os naipes de metais, de cordas, de sopros e de percussão com extrema competência. Além dos talentos da orquestra ainda rege um berimbau que dá a “baianidade” característica às músicas de Gil. E ainda tem o competente violão de 6 cordas de BEM GIL, filho do artista. Vou destacar algumas letras porquê acho que a beleza delas merece um registro e uma atenção especial dos prováveis leitores dos meus textos. 
 
+### Zuza Homem de Jazz
+Não, eu não me enganei com o nome do personagem Zuza Homem de Mello, que nos deixou na saudade aos 87 anos no dia 3/10/2.020 após ter terminado um livro sobre seu grande ídolo João Gilberto. Zuza Homem de Jazz é o nome do seu último documentário lançado pouco antes da sua partida.    
+Zuza, maestro, musicólogo, escritor e jornalista conheceu as entranhas da televisão brasileira. Era engenheiro de som da Record e participou de todos os grandes festivais, no seu   período áureo  de 1.965 a 1.972.  Estudou música nas melhor escola do mundo: a Juilliard School em Nova Iorque. E também frequentou a School of Music. Conta que fazia parte do seu curso assistir a uma grande apresentação todas as quartas feiras no Carneggie Hall. Ali conheceu os grandes músicos americanos como Ray Charles, a quem considerava um músico e arranjador de altíssimo quilate: um verdadeiro gênio. Isto já cria em mim uma grande empatia com Zuza, pois sempre fui apaixonado pelo artista genial que Zuza me fornece uma definição definitiva (viva Millor Fernandes) e exprime tudo que sinto na sua música e nunca consegui me expressar direito: Vou tentar resumir o que depreendi do mestre: “É uma música que vem de  dentro, vem das entranhas e a região em que  mais nos atinge é a barriga”. Acho que com isso ele quer dizer que causa um “frisson” na barriga quando você ouve aquela voz que mexe com seus instintos, suas terminações nervosas, coça as pernas e os braços  de vontade de dançar e a gente não consegue exprimir essa sensação. Na verdade ela é mesmo indescritível. De minha parte só sei dizer que quando a música me atinge em cheio não consigo ficar parado: pelo menos os dedos vão tamborilar no braço da cadeira e a cabeça não fica imóvel, ela se balança e se movimenta no ritmo da música. Se for Piazolla então os olhos lacrimejam e o choro vem, mas vem numa sensação gostosa de prazer e emoção.       
+Vou usar muitas expressões mágicas ao escrever  sobre o gigante Zuza mas, as extraí das entrevistas que acabo de assistir com ele: Roda Viva da Tv Cultura, a Aula Ilustrada e Musicada de ZHM na casa da Architetura na cidade do Porto, em Portugal, entrevista a Pedro Herz na livraria Cultura e tudo mais que pude garimpar para conhecer a fundo esse grande personagem. É um personagem doce, de fala mansa, discorre de uma forma de fácil entendimento, não esbanja o conhecimento que tem de sobra e sempre com um meio sorriso na boca. Seu raciocínio e a exposição de suas ideias abre novos horizontes surpreendentes no nosso conhecimento. Suas respostas nas entrevistas são técnicas e objetivas, em resumo são uma verdadeira aula mas em nenhum momento ele assume um tom professoral.         
+Nessa aula Zuza mapeia a música brasileira desde o seu surgimento até os dias atuais. Vamos ao que aprendemos na sua magistral aula na Escola de Architetura  em Portugal:   
+1 – Da junção de africanos bantos, vindos de Portugal com os sudaneses, já traficados diretamente para o Brasil, surgiu o ritmo chamado “Lundu” que evoluiu para a “Chula” e que  desaguaram no samba. No Rio de Janeiro, onde surgiram esses movimentos espontâneos dos negros escravos que precisavam de uma música para extravasar suas dores, Tia Ciata, uma negra famosa pelos seus quitutes reunia esse pessoal num movimento denominado a Pequena África, com certeza para manter suas tradições culturais. Paralelamente surgiu o “Maxixe”, um ritmo que propiciava uma dança mais acrobática que fazia rebolar  os “traseiros” das negras, fazendo grande sucesso e inclusive invadindo Paris. A dança sensual também permeou os salões da aristocracia carioca apesar de considerada muito erotizada pelos “carolas” da época. Chiquinha Gonzaga executou muitos maxixes e pelos filmes e documentários que vi era uma dança realmente muito “erotizante e libidinosa”. No cenário mundial, leia-se Paris como centro difusor de modismos, começa também a invasão do tango argentino.    
+Em 1.928 Pixinguinha com seu grupo  “Os Oito Batutas” se apresenta em Paris e faz enorme sucessos. Era um flautista mas introduziu o saxofone no samba.     
+2 – Entre 1.916 e 1.918 um mulato pernóstico, vaidoso, sestroso e sempre bem vestido compõe o primeiro samba de que se tem notícia. Sinhô, exímio pianista começa a compor seus sambas e mexe com o ritmo trazendo inovações como uma  cadência mais rítmica e balançante. Surge um grande intérprete para as músicas de Sinhô: o cantor Mário Reis, de família rica, muito elegante no vestir e que sobe o morro porquê sabia que ali era o nascedouro da verdadeira vertente do samba: O Estácio, considerado o berço do samba e que depois forma a sua famosa Escola de Samba, da qual já falamos quando abordamos Ataulfo Alves. O primeiro sucesso foi “Gosto que me enrosco”  gravado por Mário Reis em 1.928. Tanto Sinhô como Mário Reis tem vida curta e morrem por volta dos 40 anos.     
+3 – Vem o reinado das marchinhas de Carnaval e um de seus mais prolíficos criadores foi Lamartine Babo contemporâneo de João de Barro, pseudônimo de Braguinha. Em 1.950 explode “As touradas de Madrid” que é uma gozação em cima da Espanha que perdeu para o Brasil por 6x1 em pleno Maracanã lotadíssimo. Zuza conta que mais de 200 mil pessoas entoaram a marchinha em pleno Maracanã, em pé, fazendo chacoalhar a estrutura e pondo em pânico o engenheiro responsável pela construção. Achei esse número meio desproporcional  mas fui  consultar e a capacidade oficial de lotação do estádio é essa mesmo mas havia e quem jurasse que tinha umas vinte mil pessoas a mais. Pena que sobreveio o desastre da derrota para o Uruguay depois.       
+4 – Passada a euforia do Carnaval, o mercado pede músicas chamadas de “meio de ano” e nessa esteira surgem Noel Rosa e Ismael Silva, também no Estácio. Ocorre então a transferência da célula rítmica do samba que ganha um novo sincopado, mais balançado. Em 1.919 ocorreu o primeiro sucesso de Noel Rosa, compositor prolífico apesar de ter produzido por um curtíssimo período de 10 anos, vindo a falecer de tuberculose, em virtude da vida boêmia aliada ao excesso de bebida e cigarros além das noites de garoa e consequentemente a má alimentação nos botecos onde rolava o samba nas noites cariocas. Suas letras como “Quem acha vive se perdendo”, “Feitio de Oração” e “Coisas Nossas” são muito criativas. Nesta última fala inclusive que o samba alimenta o músico, endossando a tese da má alimentação. Nessa música fala “em outras bossas” e isto já é de certa forma um mote para o futuro batismo da “bossa nova” apesar da teoria que a palavra bossa tenha vindo do balanço do cupim do boi.    
+5 – O ano de 1.930 foi considerado a “Época de Ouro” da música brasileira. Surge um pianista clássico genial vindo de Ubá-MG: Ary Barroso. Jornalista e locutor de voz esganiçada que gostava de esculachar os calouros no seu programa e que compõe o segundo Hino Nacional brasileiro (não oficial): Aquarela do Brasil. Segundo Zuza o piano é o instrumento mais completo pois é harmônico e sinfônico ao mesmo tempo enquanto os demais  são apenas sinfônicos. Sustenta ainda, com muita propriedade,  que o contrabaixo é quem dita o ritmo, quem comanda a “cozinha” (termo cunhado pelo Degas aqui) especialmente na formação dos trios de piano, contrabaixo e bateria. Demorei a descobrir a importância do contrabaixo antes de frequentar o “Instrumental Sesc Brasil” na Avenida Paulista. Eu me perguntava qual a sua função. Eu não tinha a real percepção da verdadeira dimensão do instrumento. Aprendi nos instrumentais, quando é proibida a voz ou o canto, “a ouvir o contrabaixo” e aí sim comecei a “aprender” a real importância desse fabuloso instrumento.        
+6 – No final dos anos 30, “a segunda parte da época de ouro”  surge Dorival Caimy com seus sambas de remelexo, com sua sensualidade buliçosa, que põe em evidência as ancas bem fornidas das mulatas. Foi um compositor pouco prolífico: pouco mais de 160 composições, talvez até pela sua “baianice” preguiçosa, mais imbuído em correr atrás das mulheres e gozar da vida boêmia do que criar e compor. Mas deixou obras memoráveis como “Maracangalha”, “Dora”, “Doralice” “O Vento”, “Minha jangada vai pro mar” e  outras tantas.      
+7 - Zuza relata que a realização dos festivais foi a primeira vez que a música foi levada para a TV e fez um sucesso estrondoso. As grades das emissoras não contemplavam a música e priorizavam as novelas, filmes e noticiários. Os festivais transportaram a música, num dos melhores momentos de produção musical brasileira,  para a sala de estar das famílias que puderam descobrir, pela transmissão dos festivais, os grandes cantores e compositores que despontavam no cenário da música popular brasileira. Gente como Chico Buarque, Caetano, Gil, Edu Lobo, Vandré, Carlos Lyra, Rita Lee e os Mutantes, a cantora Nana Caymi  e tantos outros  tiveram sua arte e seus rostos conhecidos. Segundo  Zuza:
+<center>
+**O Brasil produz a melhor música popular do mundo e consome a pior**
+</center>   
+Com o clima de repressão da ditadura as músicas do festival  que arrostavam o regime, mesmo que subliminarmente, eram aplaudidas e as canções desengajadas eram automaticamente vaiadas. Havia uma linguagem cifrada dos compositores que driblava a “maledetta” da censura e atingia o seu público alvo: estudantes universitários engajados, na sua maioria, e que entendiam perfeitamente o recado, que passava incólume pela ignorância dos censores.     
+Essa geração musical que surgiu  na gênese dos festivais teve o grande condão de levar os compositores a mostrar seus rostos nos palcos, pois se ficassem apenas como compositores não teriam exposição e a respectiva  relevância.     
+“Disparada” foi na sua opinião a melhor música do Festival em que “empatou” com “A Banda” de Chico Buarque. Esse empate na verdade foi “forjado” por Paulinho Machado de Carvalho e Zé Nogueira (este conheci pessoalmente). Quem ganhou foi Disparada mas como Chico Buarque havia dito que não compareceria para receber medalha ou prêmio, optou-se por um empate de 6 a 6 quando na verdade o placar dos jurados foi 7 a 5. Eram doze jurados. Não se sabe  porquê um número par de jurados. Deveria ser ímpar para evitar empates. Ou já havia aí uma saída estudada para o “imbroglio” que se antevia com a postura anunciada de Chico.             
+O *Tropicalismo*, criado por Gil, Caetano, Tom Zé, entre outros, em 1.968, se situava além da esquerda política mas os censores não entendiam isso. Isso quer dizer que a preocupação primordial desses novos compositores não era exatamente atacar o regime mas tecer críticas ferinas e contundentes contra o *status quo* do nosso país, com suas mazelas, suas distorções na distribuição de benefícios à população perpetuando a pobreza e sempre cedendo benesses aos exploradores de sempre: políticos, banqueiros, industriais e comerciantes inescrupulosos. Em resumo: havia um objetivo muito maior nessa obra do que simplesmente atacar  os homens que estavam no poder naquele momento, ou glorificar a esquerda. Mas os militares interpretaram com outra visão, totalmente distorcida, e vieram as temíveis perseguições seja pela censura ou mesmo  pela expulsão, prisão ou auto exílio  dos artistas considerados “personas non gratas” aos olhos do regime. Num raciocínio “obtuso” o poder empurrou a classe artística para os braços da esquerda, que festejou com pompas a nova leva de adeptos.       
+Figura de importante  destaque  no *Tropicalismo*, de quem pouco se fala, foi Torquato Neto, o Anjo Torto da Tropicália. Para Zuza sua música [Geleia Geral](https://www.youtube.com/watch?v=mkGprDEfdB0) em parceria com Gil traça uma crítica profunda a *tudo isso que estava aí*: Vamos à sua letra:
+
+            Um poeta desfolha a bandeira
+            E a manhã tropical se inicia
+            Resplendente, cadente, fagueira
+            Num calor girassol com alegria
+            Na geléia geral brasileira
+            Que o jornal do Brasil anuncia
+            Ê bumba iê iê boi
+            Ano que vem, mês que foi
+            Ê bumba iê iê iê
+            É a mesma dança, meu boi
+            Ê bumba iê iê boi
+            Ano que vem, mês que foi
+            Ê bumba iê iê iê
+            É a mesma dança, meu boi
+            "A alegria é a prova dos nove"
+            E a tristeza é teu Porto Seguro
+            Minha terra é onde o Sol é mais limpo
+            Em Mangueira é onde o Samba é mais puro
+            Tumbadora na selva-selvagem
+            Pindorama, país do futuro
+            Ê bunba iê iê boi
+            Ano que vem, mês que foi
+            Ê bunba iê iê iê
+            É a mesma dança, meu boi
+            É a mesma dança na sala
+            No Canecão, na TV
+            E quem não dança não fala
+            Assiste a tudo e se cala
+            Não vê no meio da sala
+            As relíquias do Brasil
+            Doce mulata malvada
+            Um LP de Sinatra
+            Maracujá, mês de abril
+            Santo barroco baiano
+            Super poder de paisano
+            Formiplac e céu de anil
+            Três destaques da Portela
+            Carne seca na janela
+            Alguém que chora por mim
+            Um carnaval de verdade
+            Hospitaleira amizade
+            Brutalidade, jardim
+            Ê bumba iê iê boi
+            Ano que vem, mês que foi
+            Ê bumba iê iê iê
+            É a mesma dança, meu boi
+            Ê bumba iê iê boi
+            Ano que vem, mês que foi
+            Ê bumba iê iê iê
+            É a mesma dança, meu boi
+            Plurialva, contente e brejeira
+            Miss linda Brasil diz: "Bom Dia"
+            E outra moça também, Carolina
+            Da janela examina a folia
+            Salve o lindo pendão dos seus olhos
+            E a saúde que o olhar irradia
+            Ê bumba iê iê boi
+            Ano que vem, mês que foi
+            Ê bumba iê iê iê
+            É a mesma dança, meu boi
+            Um poeta desfolha a bandeira
+            E eu me sinto melhor colorido
+            Pego um jato, viajo, arrebento
+            Com o roteiro do sexto sentido
+            Faz do morro, pilão de concreto
+            Tropicália, bananas ao vento
+            Ê bumba iê iê boi
+            Ano que vem, mês que foi
+            Ê bumba iê iê iê
+            É a mesma dança, meu boi
+            Ê bumba iê iê boi
+            Ano que vem, mês que foi
+            Ê bumba iê iê iê
+            É a mesma dança, meu boi
+            
+Dá para perceber que, propositalmente, a letra da música faz realmente uma geleia, uma “mistureba” de temas aparentemente desconexos  que dá margem à várias interpretações e com certeza à  uma interpretação subliminar que passa batida aos olhos dos censores, funcionários públicos de mentalidade estreita. 
+ A expulsão ou mesmo o auto exílio dessa fenomenal safra de compositores esvazia a canção brasileira. Em março de 1.969 Chico volta ao Brasil, achando que o clima político  tinha mudado, mas tem que fazer malabarismos para driblar a censura que não tinha arrefecido. Grava “Apesar de você” como se fosse um briga de casal, mas o conteúdo escamoteado  é um  recado  direto e mordaz. A censura “come bola” e a música explode. Quando querem correr atrás o estrago já estava feito, e muito bem feito.     
+O que acontece de bom e novo no cenário musical é o grupo de mineiros do Club da Esquina, que aliás teve apoio e incentivo de Juscelino Kubitchek: Milton Nascimento, Lô Borges, Fernando Brandt, Wagner Tiso, Toninho Horta, Ronaldo Bastos (era paulista) e  Beto Guedes reposicionam o espaço da música popular brasileira, fundindo a música regional com o pop. Para Zuza a síntese dessa fase espetacular é a música “Fé Cega, Faca amolada” e chama a atenção para o espetacular solo de Nivaldo Ornellas, um flautista de excepcional qualidade que nessa gravação migra para o sax.      
+Outra novidade no cenário musical brasileiro acontece no Rio de Janeiro com a explosão  do regionalismo que traz Alceu Valença, Geraldo Azevedo, Belchior, Zé Geraldo  e Elba Ramalho do nordeste e vindo do sul Kleiton e Kledir. De Alagoas surge Djavan, músico completo, violão rítmico e melódico magnífico, uma voz gostosa e intimista, compositor competentíssimo que cria imagens sensoriais como “vida que vai na sela dessas dores” que remete à uma vida em que se cavalga o mundo, lutando numa peleja rural com o domínio de um cavalo, de cima de sua sela. O cavalo, ou a vida, figuradamente.     
+ Depois, como os artistas se tornam muito caros para as gravadoras: Elis foi contratada a peso de ouro para fazer o Fino da Bossa, começa a fase dos conjuntos de rock brasileiros que começaram tocar nas garagens e obviamente se tornam uma diminuição de custos para a indústria fonográfica. Surgem então Legião Urbana, Barão Vermelho  e a Blitz que apresenta uma estética pós moderna tanto nos figurinos como na maneira de se apresentar.       
+ Da Bahia vem Raul Seixas que, segundo Zuza é o expoente mais expressivo do rock brasileiro.      
+E ainda na mesma Bahia brotam os blocos do Ilêaiê, Araketu e Olodum traduzindo a linguagem litúrgica do candomblé, numa mobilização afro bahiana mesclando maracatu com  outros  ritmos de raiz africana,  essencialmente “percussivos”, de encomenda para os tambores, atabaques e toda a grande família da percussão.     
+Surge também do nordeste Luiz Caldas que bebe na raiz caribenha e traz novos ritmos. Exímio violonista, consolida com suas inovações o domínio da axé music. Na dança impera a lambada.      
+Zuza é um conhecedor profundo do jazz tendo vivenciado a explosão de músicos que iriam dominar a cena nova iorquina como Wynton Marsalis, Ron Carter, Jimmy Carter, Nicolas Payton, Herbie Hancok e tendo também assistido e trocado impressões, além de Ray Charles, com Thelonius Monk, Dave Brubeck, Fats Domino e para Zuza o supra sumo dos pianistas: Duke Elington. E ainda tinha Oscar Peterson.      
+Mostra que a palavra jazz se grafava jass, tendo mudado depois a sua escrita. Na sua definição    
+<center>
+**O BLUES É A ALMA PULSANTE DO JAZZ**.    
+</center>
+Conta também a história de New Orleans que me deixou “aguado” para conhecer, se é que existem ainda: os barcos a vapor, aqueles com uma roda de madeira atrás e soltando fumacinha,  que subiam o Rio Mississipi com grupos de jazz animando o percurso do passeio fluvial. Acontece que com a guerra a parte mais animada da cidade, o bairro Storyville que abrigava os bares chamados de Honky Tonks e também a zona do meretrício ficou muito militarizada com o estacionamento de tropas e a solução encontrada foi levar a diversão para os barcos. Fico imaginando a alegria e a animação a bordo e me vejo ali dançando e interagindo total e intensamente com os turistas e a tripulação  como fiz nas 6 viagens de pequenos cruzeiros que fiz no litoral brasileiro.     
+
 ## Casas noturnas de Sorocaba
 Anos depois, eu já tendo voltado a morar em Salto fui ao show de Tony Gordon no Kaptain´s Bar, uma casa noturna fantástica inaugurada pelo empresário Lee, chinês radicado há muito tempo e muito conhecido em Sorocaba. Esta casa ficava ao lado do Expresso Sorocabano, que bombava na época. As duas casas, do próprio Lee, eram separadas por uma divisória de madeira, altura de um metro mais ou menos. Eu já estava no Kaptain com a Carol, uma negra bonita, fã ardorosa de tudo que eu gostava: amava B. B. King e adorava dançar. 
 
@@ -418,3 +537,5 @@ Nóbrega e família são exímios bailarinos e o resgate vai do carimbó ao cava
 Muito bem: Cléber é o nosso orgulho sorocabano ao lado de Marcos Boi, guitarrista que passeia de Robert Johnson a B. B. King e Eric Clapton com grande maestria. Robert Johnson significa o marco inicial do blues no Delta do Mississípi. A tradução de blues é azul mas na acepção dos negros a palavra define um estado de espírito de tristeza. O negro que trabalhou o dia todo na colheita do algodão, levou chicotadas dos feitores chega na senzala e depois de comer o paupérrimo angu de farinha de milho, olha da janela para o firmamento e não enxerga um horizonte melhor para a sua existência e, muito triste, começa a entoar um canto que vem da alma, por isso o nome *soul music*, inspirado nos mantras das igrejas, já com um toque gospel, sem o saber. Esse murmúrio, na verdade um lamento carregado de tristeza, jorra de sua alma como uma forma de minorar seu sofrimento. Nesse estado o negro dizia que estava *blue* e daí veio o batismo do gênero musical, que é uma das minhas grandes paixões, como já disse e repito. Como disse o guitarrista Stanley Jordan, que pude ver ao vivo em São Paulo, quando ele tira uma nota aguda e prolongada da sua guitarra, essa nota bate no seu coração. 
 
 Como músicos da região ainda temos o grande baixista Sizão Machado, natural da nossa vizinha Piedade e que passeou pela noite sorocabana, galgando os degraus de fama e respeito ao acompanhar grandes artistas da noite fulgurante de São Paulo, como Elis Regina, Djavan e Milton Nascimento e até Chet Baker e Dionne Warwick. Há, também, o compositor e guitarrista Crispin del Cistia, sorocabano, que tocou com o grupo de César Camargo Mariano e teve músicas de sua composição gravadas por eles, além de ter acompanhado Elis Regina em muitos shows, como o histórico Falso Brilhante, e gravações. Temos ainda um baterista de classe média alta de Sorocaba que faz fama no meio da música instrumental em São Paulo. Sérgio Reze, baterista que tocou com Mônica Salmaso, Dominguinhos, Zélia Duncan, João Bosco e tantos outros. Não tenho certeza mas parece que é filho do Sérgio Reze dono da Abrão Reze e presidente do sindicato da classe. Mas, vamos voltar às grandes surpresas musicais.
+
+
