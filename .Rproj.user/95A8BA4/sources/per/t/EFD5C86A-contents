@@ -1,3 +1,34 @@
+---
+lang: pt-BR
+summary_float:
+   collapsed: false
+geometry: "left=2cm,right=2cm,top=2cm,bottom=2cm"
+site: bookdown::bookdown_site
+
+output: 
+   bookdown::gitbook: default
+   #bookdown::pdf_book: default
+documentclass: book
+  
+bibliography: [book.bib]
+
+suppress-bibliography: false
+link-citations: no
+github-repo: SaltoDePirapora/DonaMalvina
+description: "JAZZ, BLUES, MPB, VIAGENS, COMIDINHAS, FILMES E OUTRAS DIVAGAÇÕES BY CARLINHOS DA MALVINA, UM BOM VIVANT NA SUA PRÓPRIA DEFINIÇÃO"
+---
+
+#        Carlinhos da Malvina: Algumas Histórias    {-}
+
+<center>
+```
+`r format(Sys.time(), "%d de %B de %Y, %X")`
+```
+<center>
+<span style="color:blue">**JAZZ, BLUES, MPB, VIAGENS, COMIDINHAS, FILMES E OUTRAS DIVAGAÇÕES BY CARLINHOS DA MALVINA, UM BOM VIVANT NA SUA PRÓPRIA DEFINIÇÃO**
+<div style="width:50%">![](Imagens/O Degas.jpg)</div>
+<span style="color:red">**Autor: Carlos Antunes de Souza** 
+</center>
 
 # Introdução {-}
 <div style="text-align: justify">
