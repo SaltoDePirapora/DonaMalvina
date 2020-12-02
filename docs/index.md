@@ -14,7 +14,7 @@ subtitle: |
 
 date: |
 
-  <center>02 de dezembro de 2020, 13:23:06</center>
+  <center>02 de dezembro de 2020</center>
 
 summary_depth: 5
 summary_float:
