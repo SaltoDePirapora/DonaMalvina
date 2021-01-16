@@ -14,7 +14,7 @@ subtitle: |
 
 date: |
 
-  <center>16 de janeiro de 2021</center>
+  <center>`r format(Sys.time(), "%d de %B de %Y")`</center>
 
 summary_depth: 5
 summary_float:

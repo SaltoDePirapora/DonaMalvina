@@ -1,4 +1,4 @@
-#Histórias de Salto de Pirapora
+# Histórias de Salto de Pirapora
 <div style="text-align: justify">
 O Salto na minha época de infância/adolescência (por volta de 1.960) era uma pacata cidadezinha do interior e assim como as demais a distração era muito diferente de hoje. A gente se distraia indo à igreja, ao cinema do Neto ou na folia do Carnaval ou nas quermesses. Estas além do leilão de prendas, venda de comes e bebes sempre tinha a Banda do Antonho Músico tocando dobrados e valsas na praça, as procissões e a “caieira” de São João. Os mais abastados da época como Agenor dos Santos, Vicente de Nhá Cota, seu irmão Luizinho, Lauro Magno César, Lindonor e Osteldo (que era chamado de Oster ou mesmo Ester) e outros do mesmo calibre mandavam carros de lenha carregados de toras para a praça. Seu Agenor já mandava num caminhão Fargo ou Studebaker. 
 
@@ -553,6 +553,32 @@ Procurei fazer um registro das gírias e maneirismos que ouvi na convivência co
 -**VIU A VIOLA EM CACO:** – Se dizia quando a coisa *ficava preta*, ou sendo mais politicamente correto: *quando o bicho tava pegando*.
 **CHUVA DE MANGA:** – Para designar uma chuva passageira. Pensei que era de manga curta (de camisa). Na verdade é a lenda do Menino Mário no Chade. No conto, é uma chuva rápida que lava as folhas da mangueira e faz desabrochar  a florada.
 
+-**JAGUAPOCA:** – Cachorro ou gado vira lata, sem raça     
+-**O QUÊ BODE VÉIO:** – Dos ano 70, quando alguém contava bravatas ou alguma vantagem. No estilo: Tá podendo hein?    
+-**BAMO MATÁ O BICHO? Vamos tomar uma? Seria matar o bicho da sede ou da vontade de beber.    
+-**PORVA, PORVINHA:** – Coisinha ruim, de qualidade inferior. Esse remédio é porvinha.     
+-**MAIS SUJO QUE PAU DE GALINHEIRO:** – Pessoa que tem péssima reputação na cidade, por motivos morais ou financeiros.    
+-**RECURSENTO:** – Ouvia essa expressão no futebol. Quando um beque despachava a bola para fora do campo era chamado assim.    
+-**CHORANDO A MORTE DA BEZERRA:** – Alguém se lastimando por uma perda amorosa, ou financeira, ou de oportunidade.     
+-**CHUVICA DE MOIÁ BOBO:** – Chuvica é termo da Maju da Globo mas “chuva de moiá bobo” é saltopiraporice da gema.     
+-**PEIXÃO, BOAZUDA, BOA DE CAXA:** – Todas para expressar mulher gostosa. O boa de caxa (caixa) também é usado para gado que se presta à engorda.      
+-**TOMÔ NO FIANTÃ, TOMÔ NO FUSQUETE, TOMÔ  NA TOBA, TOMÔ NO SESSENTA FOIA, TOMÔ NA PEIDA:** – Todas com o mesmo sentido e que dispensam explicação.       
+-**PARDIAR (pardal) DISPENADO:** – Para mulheres magrinhas, sem tutano, ruins de caixa.     
+-**NUM CONTE C´O OVO NO CÚ DA GALINHA:** – Não contar com o que ainda não está ao seu alcance.     
+-**MAIS POR FORA DO QUE MINHOCA EM PEDREIRA:** –    
+-**NOVILHA ZULEGA:** – Azulada     
+-**CAVALO RUZIO (ROSILHO):** – Rosado.     
+-**BOI TUCURA:** – Ruim de raça.     
+-**VACA CABANA:** – Chifres baixos tortos para baixo.     
+-**CAVALO NAFCO:** – Cavalo manco ou  com defeito na perna.     
+-**VACA DE TREIS TETO:** – Vaca ruim para produção de leite, defeituosa.     
+-**GADINHO  PÉ DURO:** – o mesmo que tucura, ruim de raceamento.     
+-**JAGUARA:** – Cão ou cavalo ou gado sem raça: cachorro vira lata.     
+-**MUIÉ VARADÊRA:** – Comparação com a vaca que vara a cerca atrás do touro do vizinho.      
+-**COCÊRA LAZA:** – Para mulheres ............... ou para pessoas inquietas, sem paciência de esperar.       
+-**MUIÉ QUE COSTURA PRÁ FORA:** – Mesmo sentido anterior.       
+
+
 **MARVINICES**
 
 Dona Marvina também tinha seus “ditos” e expressões peculiares!!
@@ -607,7 +633,24 @@ O vocabulário do Pedro Orives era bem característico, peculiar e criativo!
 - **REGULAR DO MEIO:** – Quando não estava muito bom nem muito ruim. Para comida, trabalho ou para a qualidade de um animal.     
 - **TÁ MADURANO:** – Usava quando ficava apertado para correr no banheiro: “Acuda Turca (para Dona Malvina) que tá madurano"", ou seja a fruta que está para  cair do galho, ou de ser apanhada. Analogia com a merda mesmo.     
 - **A TURCA LEVANTOU ESPAIANDO BRASA PÁ TUDO LADO:** – Quando a Dona Marvina levantava brava.        
-- **FORTE E RIJO?:** – Uma saudação muito usada quando se encontrava um amigo, que há tempos não se via.    
+- **FORTE E RIJO?:** – Uma saudação muito usada quando se encontrava um amigo, que há tempos não se via.     
+- **INFIÔ A VIOLA NO SACO:** – Saiu perdendo, saiu sem graça à moda de um violeiro que não agradou.     
+- **NUM É DE MATÁ C´O A UNHA:** – Não se mata como pulga.     
+- **HOJE ELA LEVANTÔ C´O OVO VIRADO:** – Quando a mulher levanta de mau humor, à semelhança de galinha desesperada  que não consegue botar o ovo, porquê está virado.      
+- **DOR´AMA PÔ CORPO:** –      
+- **TÔ DERREADO:** – Tá acabado.     
+- **TÔ DISINXAVIDO:** – Tá sem graça.     
+- **QUEM VÊ CARA NÃO VÊ CORAÇÃO:** – Para pessoas falsas ou más.
+
+
+## MODERNICES (OU NÃO) USADAS EM SALTO DE PIRAPORA     
+- **JACARÉ QUE DORME DE BARRIGA PRÁ CIMA VIRA BOLSA DE MADAME:** Autoexplicativa.    
+- **X-MICO OU X-PANZÉ X-VELÓRIO:** Os dois primeiros para pão com banana e o último para o clássico *sanduba de mortandela* dos velórios acompanhado de café bem doce (para enjoar logo) e fraco (para render).    
+- **MAIS POR FORA DO QUE CEBOLA EM SALADA DE FRUTAS:** Autoexplicativa.     
+- **CHIQUE NA BOTINA (PILAR DO SUL):** Sapato novo.      
+- **MAS QUE CACHORRÃO:** Usada em São Paulo década de 50 para mulher boazuda. Mas as espertinhas tinham a resposta na ponta da língua: cachorrão sim, mas não pega viado. kkkkkk     
+- **CARA DE CAPIVARA ATROPELADA:** Mulher feia.     
+- **A CICLOVIA TIM MAIA (RJ) NÃO AGUENTOU A PRIMEIRA RESSACA:** Numa referência à ciclovia Tim Maia que desabou.    
 
 
 ## Algumas famílias numerosas de Salto de Pirapora
@@ -616,7 +659,8 @@ O vocabulário do Pedro Orives era bem característico, peculiar e criativo!
 - **TURMA DO JOÃO DA NHÁ COTA:** Ovídio, Sizina, Dorival, Balaio (Pedro Geraldo) e Ana, que foi casada com o maledetto João do Broco. 
 - **TURMA DO VICENTE DA NHÁ COTA:** Era casado com a Dona Rôla, filha do Nhonhô de Góes e Dona Virgulina e veio a prole:  Vardinho (casado com a Terezinha do Lindonor, minha prima), Osmar, Ademar (casado com a Dirce do Ditinho Mandú), Ana (casada com o Fuade), Anita (casada com o João Turco) e Virgulina (casada com o Zé Bode).
 - **TURMA DO JOÃO DO NÍSIO:** Como diria o Pedro Orive: só cachaços: Pracídio, Zé Antonio (Gordo), Zelão, Luizão, Glória (Antonio Carlos) e Fernando.
-- **TURMA DO VICENTINHO E DA SIZINA:** Marisa, João Vital, Zé Carlos, Júlio, Gersinho, Marilda, Mara e Bida
+- **TURMA DO VICENTINHO MARCELO E DA SIZINA DO JOÃO DE NHÁ COTA:** Marisa, João Vital, Zé Carlos, Júlio, Gersinho, Marilda, Mara e Bida.
 - **TURMA DO CABO ARLINDO E MARIA DE LOURDES FABIANO:** José, Luiz Fabiano, Dalvino, Ana,  Sandra, Rosa, Nelson e  Neusa. 
 - **TURMA DO MÁRIO SORDADO E DONA MARIA:** Ditinho, Neifo, Paulinho, Maria Inês, Maria Eunice e Patrícia.
 - **TURMA DO MANECO (genro do Seu Manoel Português):** Benedita, Maria, Luiz, Ana Lúcia,  Nelson, Manuel, Damaris, Luciana.
+- **ZÉ MARTELO E  DONA CÉLIA:** Pedro Henrique, Angela, Sérgio, Célia, Marcos, Beto, Carlos, Nenia e Flávio.
