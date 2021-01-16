@@ -643,7 +643,7 @@ O vocabulário do Pedro Orives era bem característico, peculiar e criativo!
 - **QUEM VÊ CARA NÃO VÊ CORAÇÃO:** – Para pessoas falsas ou más.
 
 
-## MODERNICES (OU NÃO) USADAS EM SALTO DE PIRAPORA     
+## Modernices (ou não) usadas em Salto de Pirapora     
 - **JACARÉ QUE DORME DE BARRIGA PRÁ CIMA VIRA BOLSA DE MADAME:** Autoexplicativa.    
 - **X-MICO OU X-PANZÉ X-VELÓRIO:** Os dois primeiros para pão com banana e o último para o clássico *sanduba de mortandela* dos velórios acompanhado de café bem doce (para enjoar logo) e fraco (para render).    
 - **MAIS POR FORA DO QUE CEBOLA EM SALADA DE FRUTAS:** Autoexplicativa.     
