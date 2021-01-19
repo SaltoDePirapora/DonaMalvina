@@ -577,6 +577,9 @@ Procurei fazer um registro das gírias e maneirismos que ouvi na convivência co
 -**MUIÉ VARADÊRA:** – Comparação com a vaca que vara a cerca atrás do touro do vizinho.      
 -**COCÊRA LAZA:** – Para mulheres ............... ou para pessoas inquietas, sem paciência de esperar.       
 -**MUIÉ QUE COSTURA PRÁ FORA:** – Mesmo sentido anterior.       
+-**DEU UM NÓ EM FULANO:** – Enganar, passar para trás, calar a boca ou aplicar uma sinuca de bico.
+-**SINUCA DE BICO:** – No jogo de sinuca (snooker) quando um jogador aplica uma sinuca no adversário, este tem que se virar para sair da sinuca, usando as tabelas da mesa para atingir a bola da vez. Se não sair da sinuca perde o número de pontos correspondente àquela bola. Na sinuca de bico a bola branca é escondida no cantinho curvo da caçapa impossibilitando o outro jogador de fazer qualquer movimentação da bola branca. Traduzindo sinuca de bico é usado para definir uma situação sem saída, sem solução.  
+
 
 
 **MARVINICES**
@@ -590,6 +593,12 @@ Dona Marvina também tinha seus “ditos” e expressões peculiares!!
 - **MEIO AÉREO:** Para sujeito desligado, por fora, ou seja que vive voando baixo.    
 - **MIJÔ FORA DA PICHORRA:** Deu pá tráis, deu bola fora, não sustentou o que tinha dito.    
 - **NÃO DÁ PARA TIRAR LEITE DE PEDRA:** Não dá para fazer milagres. O dinheiro acabou, não tem como fabricar.    
+- **NUM TÁ ESCRITO NA TESTA:** Não dá para saber se a pessoa é boa apenas pelas aparências.     
+- **MEIO AVOADA:** Meio aloprada.     
+- **SÓ PÁ INGLEIS VÊ:** Está enganando, escamoteando ou seja fazendo bonito só para o inglês (o estrangeiro) ver.      
+- **AQUELE NUM É DE MATÁ C´O A UNHA:** O cara não é fácil.     
+- **MIJÔ FORA DA PICHORRA:** Deu pá tráis. Não honrou o trato. O mesmo que *mijô pá tráis*.      
+- **O ROTO FALANDO DO RASGADO:** O mesmo que o sujo falando do incardido.      
 
 **PEDRO ORIVICES:** 
 
@@ -641,6 +650,7 @@ O vocabulário do Pedro Orives era bem característico, peculiar e criativo!
 - **TÔ DERREADO:** – Tá acabado.     
 - **TÔ DISINXAVIDO:** – Tá sem graça.     
 - **QUEM VÊ CARA NÃO VÊ CORAÇÃO:** – Para pessoas falsas ou más.
+- **MALACAFENTO:** – Sujeito mal ajambrado, de péssimo aspecto.
 
 
 ## Modernices (ou não) usadas em Salto de Pirapora     
@@ -651,6 +661,26 @@ O vocabulário do Pedro Orives era bem característico, peculiar e criativo!
 - **MAS QUE CACHORRÃO:** Usada em São Paulo década de 50 para mulher boazuda. Mas as espertinhas tinham a resposta na ponta da língua: cachorrão sim, mas não pega viado. kkkkkk     
 - **CARA DE CAPIVARA ATROPELADA:** Mulher feia.     
 - **A CICLOVIA TIM MAIA (RJ) NÃO AGUENTOU A PRIMEIRA RESSACA:** Numa referência à ciclovia Tim Maia que desabou.    
+
+
+##  Novelices de "O Bem Amado", “Roque Santeiro” e outras
+Algumas expressões de novelas que viraram quase que Saltopiraporices!
+
+
+- **VAMO TOMÁ UM INGASGA GATO?:** Uma cachacinha (Zeca Diabo(Lima Duarte)).    
+- **AQUELE É UM SAFADISTA MILITANTE:** Odorico Paraguaçu(Paulo Gracindo).    
+- **AQUELE É UM SUJEITO URUBUZENTO:** Odorico Paraguaçu.     
+- **VAMOS DEIXAR OS ENTRETANTOS E PARTIR PARA OS FINALMENTE:** Odorico Paraguaçu, encurtando e cortando a conversa.      
+- **VIVA ODORICO, MORRA ODORICO:** Nezinho do Jegue (Wilson Aguiar) elogiava o prefeito de Sucupira quando estava sóbrio e o vaiava quando estava bêbado. Metáfora sensacional que na verdade define o povo, os eleitores no sentido contrário. Tecem loas quando estão embebedados pela lábia do político sabido que acabou de assumir e depois, passado o “embevecimento” passam a vaiar e criticar, sem dó.       
+- **EU QUERO APRENDÊ A LÊ DE CARRERINHA:** Zeca Diabo querendo aprender a ler para fazer um curso de *potrético* (protético).     
+- **POSSO PENETRAR?:** Professor Astromar(Rui Rezende) pedindo permissão para adentrar a sala da casa do prefeito Florindo Abelha e da dona Pombinha. Ele ia visitar a Santinha (Lucinha Lins, linda) que lhe deu o fora a novela toda.      
+- **VAI, PENETRA LOGO, VAI:** O prefeito Abelha(Ary Fontoura) autorizando a tal *penetração*.     
+- **É JUSTO, É MUITO JUSTO, É JUSTÍSSIMO:** Coronel Belarmino (José Wilker ). Conta-se que a expressão não estava no roteiro mas José Wiler, ao esquecer a sua fala, não se perturbou e cunhou a expressão. “É justo” se tornou a marca registrada do Walter Benedetti, lendário e folclórico cidadão da nossa cidade onde quando se fala para o cara que ele é um sujeito justo, tem outra conotação bem diferente e para lá de maliciosa.       
+- **Ó XENTE, MY GOD:** Dona Altiva (Eva Wilma) na novela “A Indomada”.     
+- **DEITE, QUE EU VOU LHE USAR:** Coronel Justino (José Wilker) quando queria ter relações com a esposa Sinhazinha (Maitê Proença) que acabou lhe botando os chifres com o dentista Dr Osmundo  (Erick Marmo) mas, acabaram fuzilados em pleno ato pelo Coronel corneado.       
+- **HONRA SE LAVA COM SANGUE:** Bordão e costume dos nordestinos corneados.      
+- **VAMO BEBÊ  FULANO?:** Dessa forma se homenageava o morto, em intermináveis rodadas de cachaça, no gargalo, madrugada adentro.       
+- **TÔ CERTO OU TÔ ERRADO?:** Sinhozinho Malta, o Coronel de chapelão chacoalhando concomitantemente a sua grossa pulseira barulhenta (com o som caracterísco amplificado pelos sonoplastas.     
 
 
 ## Algumas famílias numerosas de Salto de Pirapora

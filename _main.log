@@ -1,4 +1,4 @@
-This is pdfTeX, Version 3.14159265-2.6-1.40.20 (MiKTeX 2.9.7200 64-bit) (preloaded format=pdflatex 2019.11.4)  16 JAN 2021 15:21
+This is pdfTeX, Version 3.14159265-2.6-1.40.20 (MiKTeX 2.9.7200 64-bit) (preloaded format=pdflatex 2019.11.4)  19 JAN 2021 16:56
 entering extended mode
 **./_main.tex
 (_main.tex
@@ -670,7 +670,7 @@ Package grfext Info: Graphics extension search list:
 G,.JBIG2,.JB2,.eps]
 (grfext)             \AppendGraphicsExtensions on input line 456.
 )
-<"Imagens/""O Degas".jpg, id=299, 414.54875pt x 433.62pt>
+<"Imagens/""O Degas".jpg, id=303, 414.54875pt x 433.62pt>
 File: "Imagens/""O Degas".jpg Graphic file (type jpg)
 <use "Imagens/""O Degas".jpg>
 Package pdftex.def Info: "Imagens/""O Degas".jpg  used on input line 93.
@@ -741,7 +741,7 @@ LaTeX Font Info:    External font `lmex10' loaded for size
 
 ]
 Cap\'{\i }tulo 1.
-<"Imagens/""pousada 28.01 metade".jpg, id=405, 338.9463pt x 388.0899pt>
+<"Imagens/""pousada 28.01 metade".jpg, id=410, 338.9463pt x 388.0899pt>
 File: "Imagens/""pousada 28.01 metade".jpg Graphic file (type jpg)
 <use "Imagens/""pousada 28.01 metade".jpg>
 Package pdftex.def Info: "Imagens/""pousada 28.01 metade".jpg  used on input li
@@ -758,7 +758,7 @@ Underfull \vbox (badness 10000) has occurred while \output is active []
 Underfull \vbox (badness 10000) has occurred while \output is active []
 
 [9] [10] [11] [12]
-<"Imagens/""CertidaoCasMalvinaPedro".jpeg, id=432, 782.925pt x 1043.9pt>
+<"Imagens/""CertidaoCasMalvinaPedro".jpeg, id=437, 782.925pt x 1043.9pt>
 File: "Imagens/""CertidaoCasMalvinaPedro".jpeg Graphic file (type jpg)
 <use "Imagens/""CertidaoCasMalvinaPedro".jpeg>
 Package pdftex.def Info: "Imagens/""CertidaoCasMalvinaPedro".jpeg  used on inpu
@@ -808,7 +808,7 @@ Underfull \vbox (badness 10000) has occurred while \output is active []
 
 [33] [34]
 Cap\'{\i }tulo 2.
-<"Imagens/""Igreja".jpeg, id=535, 338.76563pt x 189.70876pt>
+<"Imagens/""Igreja".jpeg, id=540, 338.76563pt x 189.70876pt>
 File: "Imagens/""Igreja".jpeg Graphic file (type jpg)
 <use "Imagens/""Igreja".jpeg>
 Package pdftex.def Info: "Imagens/""Igreja".jpeg  used on input line 1700.
@@ -834,7 +834,7 @@ Underfull \vbox (badness 10000) has occurred while \output is active []
 Underfull \vbox (badness 10000) has occurred while \output is active []
 
 [46] [47]
-<"Imagens/""ZeAntonio".jpeg, id=590, 1043.9pt x 782.925pt>
+<"Imagens/""ZeAntonio".jpeg, id=595, 1043.9pt x 782.925pt>
 File: "Imagens/""ZeAntonio".jpeg Graphic file (type jpg)
 <use "Imagens/""ZeAntonio".jpeg>
 Package pdftex.def Info: "Imagens/""ZeAntonio".jpeg  used on input line 2460.
@@ -855,7 +855,7 @@ Underfull \vbox (badness 10000) has occurred while \output is active []
 Underfull \vbox (badness 4899) has occurred while \output is active []
 
 [58]
-<"Imagens/""time dos Parados2".jpeg, id=638, 291.33844pt x 249.18094pt>
+<"Imagens/""time dos Parados2".jpeg, id=643, 291.33844pt x 249.18094pt>
 File: "Imagens/""time dos Parados2".jpeg Graphic file (type jpg)
 <use "Imagens/""time dos Parados2".jpeg>
 Package pdftex.def Info: "Imagens/""time dos Parados2".jpeg  used on input line
@@ -882,7 +882,7 @@ Underfull \vbox (badness 10000) has occurred while \output is active []
 Underfull \vbox (badness 10000) has occurred while \output is active []
 
 [79] [80] [81]
-<"Imagens/""TurmaSalto".jpeg, id=749, 803.0pt x 606.265pt>
+<"Imagens/""TurmaSalto".jpeg, id=754, 803.0pt x 606.265pt>
 File: "Imagens/""TurmaSalto".jpeg Graphic file (type jpg)
 <use "Imagens/""TurmaSalto".jpeg>
 Package pdftex.def Info: "Imagens/""TurmaSalto".jpeg  used on input line 4478.
@@ -969,137 +969,150 @@ Underfull \hbox (badness 10000) in paragraph at lines 4756--4762
 Underfull \vbox (badness 10000) has occurred while \output is active []
 
 [87]
-Underfull \hbox (badness 10000) in paragraph at lines 4867--4870
-
- []
+Underfull \vbox (badness 10000) has occurred while \output is active []
 
 [88]
-Underfull \hbox (badness 10000) in paragraph at lines 4870--4875
+Underfull \hbox (badness 10000) in paragraph at lines 4876--4879
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 4875--4877
+Underfull \hbox (badness 10000) in paragraph at lines 4879--4884
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 4877--4881
+Underfull \hbox (badness 10000) in paragraph at lines 4884--4886
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 4881--4884
+Underfull \hbox (badness 10000) in paragraph at lines 4886--4890
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 4884--4887
+Underfull \hbox (badness 10000) in paragraph at lines 4890--4893
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 4899--4901
+Underfull \hbox (badness 10000) in paragraph at lines 4893--4896
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 4901--4903
+Underfull \hbox (badness 10000) in paragraph at lines 4896--4899
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 4903--4906
+Underfull \hbox (badness 10000) in paragraph at lines 4899--4902
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 4906--4908
+Underfull \hbox (badness 10000) in paragraph at lines 4902--4904
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 4908--4910
+Underfull \hbox (badness 10000) in paragraph at lines 4904--4907
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 4910--4912
+Underfull \hbox (badness 10000) in paragraph at lines 4907--4909
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 4912--4914
+Underfull \hbox (badness 10000) in paragraph at lines 4909--4912
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 4914--4916
+Underfull \hbox (badness 10000) in paragraph at lines 4924--4926
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 4916--4918
+Underfull \hbox (badness 10000) in paragraph at lines 4926--4928
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 4918--4920
-
- []
-
-
-Underfull \hbox (badness 10000) in paragraph at lines 4920--4922
-
- []
-
-
-Underfull \hbox (badness 10000) in paragraph at lines 4922--4924
-
- []
-
-
-Underfull \hbox (badness 10000) in paragraph at lines 4924--4929
+Underfull \hbox (badness 10000) in paragraph at lines 4928--4931
 
  []
 
 [89]
-Underfull \hbox (badness 10000) in paragraph at lines 4929--4933
+Underfull \hbox (badness 10000) in paragraph at lines 4931--4933
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 4933--4937
+Underfull \hbox (badness 10000) in paragraph at lines 4933--4935
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 4937--4945
+Underfull \hbox (badness 10000) in paragraph at lines 4935--4937
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 4954--4971
+Underfull \hbox (badness 10000) in paragraph at lines 4937--4939
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 4971--4976
+Underfull \hbox (badness 10000) in paragraph at lines 4939--4941
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 4976--4981
+Underfull \hbox (badness 10000) in paragraph at lines 4941--4943
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 4981--4984
+Underfull \hbox (badness 10000) in paragraph at lines 4943--4945
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 4984--4986
+Underfull \hbox (badness 10000) in paragraph at lines 4945--4947
+
+ []
+
+
+Underfull \hbox (badness 10000) in paragraph at lines 4947--4949
+
+ []
+
+
+Underfull \hbox (badness 10000) in paragraph at lines 4949--4954
+
+ []
+
+
+Underfull \hbox (badness 10000) in paragraph at lines 4954--4958
+
+ []
+
+
+Underfull \hbox (badness 10000) in paragraph at lines 4958--4962
+
+ []
+
+
+Underfull \hbox (badness 10000) in paragraph at lines 4962--4970
+
+ []
+
+
+Underfull \hbox (badness 10000) in paragraph at lines 4979--4996
 
  []
 
@@ -1107,47 +1120,32 @@ Underfull \hbox (badness 10000) in paragraph at lines 4984--4986
 Underfull \vbox (badness 10000) has occurred while \output is active []
 
 [90]
-Underfull \hbox (badness 10000) in paragraph at lines 4986--4988
+Underfull \hbox (badness 10000) in paragraph at lines 4996--5001
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 4988--4993
+Underfull \hbox (badness 10000) in paragraph at lines 5001--5006
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 4993--4996
+Underfull \hbox (badness 10000) in paragraph at lines 5006--5009
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 4996--5000
+Underfull \hbox (badness 10000) in paragraph at lines 5009--5011
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 5000--5002
+Underfull \hbox (badness 10000) in paragraph at lines 5011--5013
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 5002--5006
-
- []
-
-
-Underfull \hbox (badness 10000) in paragraph at lines 5006--5010
-
- []
-
-
-Underfull \hbox (badness 10000) in paragraph at lines 5010--5015
-
- []
-
-
-Underfull \hbox (badness 10000) in paragraph at lines 5015--5018
+Underfull \hbox (badness 10000) in paragraph at lines 5013--5018
 
  []
 
@@ -1157,32 +1155,27 @@ Underfull \hbox (badness 10000) in paragraph at lines 5018--5021
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 5021--5024
+Underfull \hbox (badness 10000) in paragraph at lines 5021--5025
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 5024--5027
+Underfull \hbox (badness 10000) in paragraph at lines 5025--5027
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 5027--5029
+Underfull \hbox (badness 10000) in paragraph at lines 5027--5031
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 5029--5032
+Underfull \hbox (badness 10000) in paragraph at lines 5031--5035
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 5032--5037
-
- []
-
-
-Underfull \hbox (badness 10000) in paragraph at lines 5037--5040
+Underfull \hbox (badness 10000) in paragraph at lines 5035--5040
 
  []
 
@@ -1200,12 +1193,12 @@ Underfull \hbox (badness 10000) in paragraph at lines 5043--5046
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 5046--5048
+Underfull \hbox (badness 10000) in paragraph at lines 5046--5049
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 5048--5052
+Underfull \hbox (badness 10000) in paragraph at lines 5049--5052
 
  []
 
@@ -1215,67 +1208,172 @@ Underfull \hbox (badness 10000) in paragraph at lines 5052--5054
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 5054--5056
+Underfull \hbox (badness 10000) in paragraph at lines 5054--5057
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 5056--5058
+Underfull \hbox (badness 10000) in paragraph at lines 5057--5062
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 5067--5070
+Underfull \hbox (badness 10000) in paragraph at lines 5062--5065
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 5070--5075
+Underfull \hbox (badness 10000) in paragraph at lines 5065--5068
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 5075--5078
+Underfull \hbox (badness 10000) in paragraph at lines 5068--5071
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 5078--5080
+Underfull \hbox (badness 10000) in paragraph at lines 5071--5073
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 5080--5084
+Underfull \hbox (badness 10000) in paragraph at lines 5073--5077
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 5084--5086
+Underfull \hbox (badness 10000) in paragraph at lines 5077--5079
 
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 5096--5100
+Underfull \hbox (badness 10000) in paragraph at lines 5079--5081
+
+ []
+
+
+Underfull \hbox (badness 10000) in paragraph at lines 5081--5083
+
+ []
+
+
+Underfull \hbox (badness 10000) in paragraph at lines 5094--5097
 
  []
 
 [92]
-Package atveryend Info: Empty hook `BeforeClearDocument' on input line 5135.
+Underfull \hbox (badness 10000) in paragraph at lines 5097--5102
+
+ []
+
+
+Underfull \hbox (badness 10000) in paragraph at lines 5102--5105
+
+ []
+
+
+Underfull \hbox (badness 10000) in paragraph at lines 5105--5107
+
+ []
+
+
+Underfull \hbox (badness 10000) in paragraph at lines 5107--5111
+
+ []
+
+
+Underfull \hbox (badness 10000) in paragraph at lines 5111--5113
+
+ []
+
+
+Underfull \hbox (badness 10000) in paragraph at lines 5126--5129
+
+ []
+
+
+Underfull \hbox (badness 10000) in paragraph at lines 5129--5132
+
+ []
+
+
+Underfull \hbox (badness 10000) in paragraph at lines 5132--5134
+
+ []
+
+
+Underfull \hbox (badness 10000) in paragraph at lines 5134--5137
+
+ []
+
+
+Underfull \hbox (badness 10000) in paragraph at lines 5137--5144
+
+ []
+
+
+Underfull \hbox (badness 10000) in paragraph at lines 5144--5147
+
+ []
+
+
+Underfull \hbox (badness 10000) in paragraph at lines 5147--5152
+
+ []
+
+
+Underfull \hbox (badness 10000) in paragraph at lines 5152--5155
+
+ []
+
 [93]
-Package atveryend Info: Empty hook `AfterLastShipout' on input line 5135.
+Underfull \hbox (badness 10000) in paragraph at lines 5155--5163
+
+ []
+
+
+Underfull \hbox (badness 10000) in paragraph at lines 5163--5166
+
+ []
+
+
+Underfull \hbox (badness 10000) in paragraph at lines 5166--5171
+
+ []
+
+
+Underfull \hbox (badness 10000) in paragraph at lines 5171--5174
+
+ []
+
+
+Underfull \hbox (badness 10000) in paragraph at lines 5174--5177
+
+ []
+
+
+Underfull \hbox (badness 10000) in paragraph at lines 5188--5192
+
+ []
+
+[94]
+Package atveryend Info: Empty hook `BeforeClearDocument' on input line 5227.
+[95]
+Package atveryend Info: Empty hook `AfterLastShipout' on input line 5227.
 (_main.aux)
-Package atveryend Info: Executing hook `AtVeryEndDocument' on input line 5135.
-Package atveryend Info: Executing hook `AtEndAfterFileList' on input line 5135.
+Package atveryend Info: Executing hook `AtVeryEndDocument' on input line 5227.
+Package atveryend Info: Executing hook `AtEndAfterFileList' on input line 5227.
 
 Package rerunfilecheck Info: File `_main.out' has not changed.
-(rerunfilecheck)             Checksum: 5836F3CDA60D7F7455117DB0ECD30302;15736.
-Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 5135.
+(rerunfilecheck)             Checksum: D415A21BF44B1D177B2B556865D63F1C;16061.
+Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 5227.
  ) 
 Here is how much of TeX's memory you used:
- 14039 strings out of 492453
- 204845 string characters out of 3129811
- 369185 words of memory out of 3000000
- 17784 multiletter control sequences out of 15000+200000
+ 14044 strings out of 492453
+ 204935 string characters out of 3129811
+ 369326 words of memory out of 3000000
+ 17786 multiletter control sequences out of 15000+200000
  82846 words of font info for 152 fonts, out of 3000000 for 9000
  1141 hyphenation exceptions out of 8191
  46i,6n,42p,970b,469s stack positions out of 5000i,500n,10000p,200000b,50000s
@@ -1286,9 +1384,9 @@ MiKTeX 2.9/fonts/enc/dvips/lm/lm-ec.enc}<C:/Program Files/MiKTeX 2.9/fonts/type
  Files/MiKTeX 2.9/fonts/type1/public/lm/lmr17.pfb><C:/Program Files/MiKTeX 2.9/
 fonts/type1/public/lm/lmri12.pfb><C:/Program Files/MiKTeX 2.9/fonts/type1/publi
 c/lm/lmro12.pfb><C:/Program Files/MiKTeX 2.9/fonts/type1/public/lm/lmtt12.pfb>
-Output written on _main.pdf (93 pages, 1895784 bytes).
+Output written on _main.pdf (95 pages, 1902179 bytes).
 PDF statistics:
- 873 PDF objects out of 1000 (max. 8388607)
- 189 named destinations out of 1000 (max. 500000)
- 14964 words of extra memory for PDF output out of 17280 (max. 10000000)
+ 886 PDF objects out of 1000 (max. 8388607)
+ 192 named destinations out of 1000 (max. 500000)
+ 14972 words of extra memory for PDF output out of 17280 (max. 10000000)
 
