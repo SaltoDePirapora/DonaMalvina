@@ -4,13 +4,13 @@ title: |
   
   <center>Carlinhos da Malvina: Algumas Histórias</center> 
   
-  <center>![](Imagens/O Degas.jpg)</center>
+  <center>![](Imagens/OSALTOB.JPEG)</center>
   
   <center>Autor: Carlos Antunes de Souza</center>
 
 subtitle: |
 
-  <center><span style="color:blue">CARLINHOS DA MALVINA, UM BOM VIVANT NA SUA PRÓPRIA DEFINIÇÃO: MINHA FAMÍLIA E MINHA CIDADE</center>
+  <center><span style="color:blue">Carlinhos da Malvina, um *bom vivant* na sua própria definição: Minha Família e Minha Cidade</center>
 
 date: |
 
@@ -27,13 +27,13 @@ site: bookdown::bookdown_site
 
 output: 
    bookdown::gitbook: default
-   bookdown::pdf_book: default
+/  bookdown::pdf_book: default
 documentclass: book
 
 suppress-bibliography: yes
 link-citations: no
 github-repo: SaltoDePirapora/DonaMalvina
-description: "JAZZ, BLUES, MPB, VIAGENS, COMIDINHAS, FILMES E OUTRAS DIVAGAÇÕES BY CARLINHOS DA MALVINA, UM BOM VIVANT NA SUA PRÓPRIA DEFINIÇÃO"
+description: "HISTÓRIAS DA FAMÍLIA E DE SALTO DE PIRAPORA BY CARLINHOS DA MALVINA, UM BOM VIVANT NA SUA PRÓPRIA DEFINIÇÃO"
 ---
 
 # Introdução {-}
