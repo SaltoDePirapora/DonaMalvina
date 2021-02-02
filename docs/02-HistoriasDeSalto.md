@@ -340,6 +340,9 @@ Lendário fazendeiro ricaço da região quando instado a pagar o café que tinha
 ###História escabrosas
 Numa caçada de veados quando o Walter Benedetti levou toda a sua matilha *veadeira*, da qual vivia se gabando aconteceu a história que me foi contada pelo próprio Narciso Martelo, que morava na rua do Pupo´s bar e participou da história. O Walter chegou se gabando de um *cachorro americano* que tinha acabado de adquirir. A caçada de veados é feita em campos abertos e o bicho, muito matreiro dá voltas imensas para chegar na sua toca, tentando despistar a matilha, que chega a quarenta cães. Antes da *sortada* dos cachorros, que é o momento que *tropa de veadeiros* vai começar a corrida de perseguição, o Narciso, por pura sacanagem, atraiu o *americano garboso* do Walter e agradando e dando pedaços de carne, foi alisando e acariciando o cachorro e acabou batendo uma punheta para o bicho. Veio a *sortada* e o tal campeão não queria correr pois não tinha forças para acompanhar a matilha, que chega a correr por horas farejando e tentando localizar a caça, até que os caçadores a abatam a tiros de espingarda. O cachorro ficou estático e o Walter todo preocupado: meu campeão deve tá doente, “num qué corrê”. E o Narciso, matreiro, morrendo de rir, pelos cantos para não dar na cara a sacanagem que tinha cometido.  A *sortada* é quando todos os cães *veadeiros* são postos para correr e farejar o veado. Este dá longas voltas tentando despistar a matilha e protegendo a sua toca, que pode ter filhotes. Isto pode durar horas. 
 
+###Vitório Skilaci e seu alto falante
+Vitório Skilaci tinha um serviço de alto falante em sua casa na Rua Antonio Rodrigues Simões. Era casado com a Dona Maria, mulher no estilo Dona Redonda. Era ela meio metida a *finória* e criticava as pessoas e a cidade. O Vitório se meteu na política, criticava também as pessoas e então se tornaram um casal *olhado meio de isgueio*: não eram muito bem vistos na cidade. 
+
 ##Os apelidos em Salto de Pirapora
 Cidades pequenas são pródigas em apelidos. Existe quase um orgulho de quem “botou o apelido” e ainda mais quando ele pega mesmo e passa a fazer parte intrínseca e indissociável daquela pessoa. A nossa cidade também tem a sua galeria de apelidos que vou aproveitar da oportunidade para deixar aqui registrados. Só vou descrever quando sei algum detalhe sobre a causa ou a origem do apelido. 
 
@@ -578,9 +581,15 @@ Procurei fazer um registro das gírias e maneirismos que ouvi na convivência co
 -**COCÊRA LAZA:** – Para mulheres ............... ou para pessoas inquietas, sem paciência de esperar.       
 -**MUIÉ QUE COSTURA PRÁ FORA:** – Mesmo sentido anterior.       
 -**DEU UM NÓ EM FULANO:** – Enganar, passar para trás, calar a boca ou aplicar uma sinuca de bico.
--**SINUCA DE BICO:** – No jogo de sinuca (snooker) quando um jogador aplica uma sinuca no adversário, este tem que se virar para sair da sinuca, usando as tabelas da mesa para atingir a bola da vez. Se não sair da sinuca perde o número de pontos correspondente àquela bola. Na sinuca de bico a bola branca é escondida no cantinho curvo da caçapa impossibilitando o outro jogador de fazer qualquer movimentação da bola branca. Traduzindo sinuca de bico é usado para definir uma situação sem saída, sem solução.  
-
-
+-**SINUCA DE BICO:** – No jogo de sinuca (snooker) quando um jogador aplica uma sinuca no adversário, este tem que se virar para sair da sinuca, usando as tabelas da mesa para atingir a bola da vez. Se não sair da sinuca perde o número de pontos correspondente àquela bola. Na sinuca de bico a bola branca é escondida no cantinho curvo da caçapa impossibilitando o outro jogador de fazer qualquer movimentação da bola branca. Traduzindo sinuca de bico é usado para definir uma situação sem saída, sem solução.      
+-**DISGUIÔ NA CARRÊRA** – Perdeu o rumo. A carrêra é a corrida de dois ou mais cavalos e o que disguiô na carrêra é o que *negou fogo*, desistiu da contenda.       
+-**PELOS DENTES SE CONHECE A IDADE DO CAVALO** – É um fato mas também serve como metáfora para sujeitos falsos e dissimulados.    
+-**RABO DE ARRÁIA** – Ameaçando alguém de lhe dar uma *rasteira*.      
+-**TOMOU SOPA DE LETRINHA HOJE?** – Quando alguém começa a falar palavras difíceis.   
+-**QUANDO UM BURRO FALA, O OUTRO ABAIXA A ORELHA** – Quando o interlocutor interrompe a fala de alguém.   
+-**TÁ CUM CALOR? BATA A BUNDA NO TAMBOR**      
+-**TÁ CUM FRIO? BATA A BUNDA NO RIO**    
+-**CHUVA COM SÓR, CASAMENTO DE ESPANHÓR**    
 
 **MARVINICES**
 
@@ -681,6 +690,8 @@ Algumas expressões de novelas que viraram quase que Saltopiraporices!
 - **HONRA SE LAVA COM SANGUE:** Bordão e costume dos nordestinos corneados.      
 - **VAMO BEBÊ  FULANO?:** Dessa forma se homenageava o morto, em intermináveis rodadas de cachaça, no gargalo, madrugada adentro.       
 - **TÔ CERTO OU TÔ ERRADO?:** Sinhozinho Malta, o Coronel de chapelão chacoalhando concomitantemente a sua grossa pulseira barulhenta (com o som caracterísco amplificado pelos sonoplastas.     
+- **VOU AO ESTILISTA CAPILAR:** Professor Astromar indo ao barbeiro.
+- **BANDIDO FACINOROSO, CARCARÁ SANGUINOLENTO:** Sinhozinho Malta ao se referir a Roque Santeiro.
 
 
 ## Algumas famílias numerosas de Salto de Pirapora
