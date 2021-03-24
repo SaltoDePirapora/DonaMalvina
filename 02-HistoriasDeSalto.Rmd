@@ -433,11 +433,10 @@ Encerrando com chave de ouro, aí vai um discurso da campanha do Genorzinho quan
 
 *I num isqueça:*    
 _*“Vote no Genor que ele enche o seu tambor”*_    
-_*“Vote no Genorzinho, que êle cárca no seu cuzinho”*_   
+_*“Vote no Genorzinho, que êle cárca no seu cuzinho”*_ 
 
-**O banheiro dabarbearia do João Grilo*
 
-O BANHEIRO DA BARBEARIA DO JOÃO GRILO
+**O banheiro dabarbearia do João Grilo**
 
 O João Grillo, genro do Genorzinho, casado com a Ismênia, herdou a profissão de barbeiro do pai e o Genor resolveu construir um salão para ele trabalhar mais ou menos  em cima da antiga  farmácia do Jairo, ao lado da casa do Serginho Martelo. Era no segundo piso, que era alcançado por uma escada de alvenaria já um pouco íngreme devido à capacidade do Genor de construir em espaços exíguos. Uma pequena barbearia bem apertadinha comportando quase que apenas a cadeira de barbeiro e um banheirinho pouco maior que uma caixa de fósforos. Aí surgiram as saborosas anedotas: dizem que o Ramon, um paraguaio se dizendo mexicano que apareceu por aqui com lutadoras de trajes também exíguos para uma apresentação no cinema do Neto, que já narramos, foi o protagonista da história. Acontece que o Ramon, que casou com a linda  morena Iracema, irmã da Aninha e do Pompílio,  com uma circunferência abdominal e peso equivalentes a um boi de 10 arrobas, precisou usar o banheiro, obra e arte do Genorzinho. Dizem as más línguas que teve que entrar de ré, pois não dava para manobrar (esterçar) o corpanzil dentro do banheiro. Ao ser questionado e gozado pelo minúsculo “cagadô”, onde mal cabia o Ramon saiu-se com essa: “Se eu tivesse lá na hora, resorvia o pobrema facinho, facinho. Mandava ele cagá na apá (pá) e jogava no vaso, nem que tivesse que dá umas par de apalada”. Quem podia c´ô Genor e suas tiradas rápidas e criativas?
 
@@ -560,9 +559,8 @@ Procurei fazer um registro das gírias e maneirismos que ouvi na convivência co
 -**PICEGO:** – Corruptela de cego.  Se diz também de quem tem um olho caído, meio caolho.     
 -**CAPADÓCIO:** – Usado no sentido pejorativo: Ignorante, burro.         
 -**JAGUARA:** – Usado para cão vira lata, gado sem raça e para humanos com as mesmas características.     
--**VIU A VIOLA EM CACO:** – Se dizia quando a coisa *ficava preta*, ou sendo mais politicamente correto: *quando o bicho tava pegando*.
-**CHUVA DE MANGA:** – Para designar uma chuva passageira. Pensei que era de manga curta (de camisa). Na verdade é a lenda do Menino Mário no Chade. No conto, é uma chuva rápida que lava as folhas da mangueira e faz desabrochar  a florada.
-
+-**VIU A VIOLA EM CACO:** – Se dizia quando a coisa *ficava preta*, ou sendo mais politicamente correto: *quando o bicho tava pegando*.    
+-**CHUVA DE MANGA:** – Para designar uma chuva passageira. Pensei que era de manga curta (de camisa). Na verdade é a lenda do Menino Mário no Chade. No conto, é uma chuva rápida que lava as folhas da mangueira e faz desabrochar  a florada.    
 -**JAGUAPOCA:** – Cachorro ou gado vira lata, sem raça     
 -**O QUÊ BODE VÉIO:** – Dos ano 70, quando alguém contava bravatas ou alguma vantagem. No estilo: Tá podendo hein?    
 -**BAMO MATÁ O BICHO? Vamos tomar uma? Seria matar o bicho da sede ou da vontade de beber.    
@@ -633,8 +631,11 @@ O vocabulário do Pedro Orives era bem característico, peculiar e criativo!
 - **FEIO É PINTO QUE NASCE PELADO:**     
 - **O BOBO RALEIA, MAIS NUM FÁIA:**    
 - **NUM SOCO SÓ:** Pedro Orive usava essa expressão quando ia movimentar um pau pesado com 3 ou mais pessoas e a expressão era no sentido de todo mundo fazer força, ou *forcejar* no mesmo momento e ritmo.          
-- **REGATÊRA:** Ih, essa égua tá muito regatêra hoje. Quando o animal não deixava pegar no pasto ou quando *refugava* na lida com o gado.     
+- **REGATÊRA:** Quando a égua levantava o rabo e saia em debandada ele dizia: chi, essa égua tá muito regatêra hoje. Quando o animal não deixava pegar no pasto ou quando *refugava* na lida com o gado.     
 - **BOA SIBÉRIA:** Não sei de onde meu pai tirou essa. Quando alguém ia viajar ou alguém “de casa” estava saindo ele usava essa saudação. Talvez nem tivesse causa ou explicação.    
+- **COLEGA DE ESCOLA:** Quando as duas éguas se davam bem, ele dizia que elas eram “colega de escola”, ou seja amigas e parceiras.     
+- **O QUE É DE GOSTO É O REGALO DA VIDA:** No sentido que não se pode criticar ninguém por certos gostos exdrúxulos.    
+- **FAZENO VERÃO:** Quando estava se preparando para fazer algum serviço ou uma viagem a Sorocaba. Acho que vem das andorinhas, devido  ao ditado: “Uma andorinha só não faz verão” ou seja como são as aves migratórias  mais representativas e migram em bandos.     
 - **RANRULLE:** Quando ele foi para São Paulo, na estação de trem tinha um vendedor de jornais que anunciava em altos brados o nome do jornal  italiano “FANFULLA” da seguinte forma: Rio de Janeiro, São Paulo, Belo horizonte: *FANFULLA* e prosseguia para a Europa: Lisboa, Madri, Londres: *FANFULLA*. Anunciava que o vespertino trazia notícias do Brasil e do mundo inteiro e meu pai imitava o vendedor com a palavra que ele assimilou: *RANRULLE*.     
 - **PORCA CABANA:** meu irmão Crizólito levou o papai passear no Rio de Janeiro e ele voltou todo garboso contando dos lugares que ele conheceu inclusive a praia de *PORCA CABANA*, no seu registro pessoal para *COPACABANA.* E contava isso na barbearia e nas conversas e eu tive que aguentar muita gozação por conta disso mas, depois passei a achar muito engraçado a sua criatividade. Cabano ou cabana  seria um boi ou vaca sem chifres então mais ainda que o sentido se complica. 
 - **O VIRADO DE OVO:** o Pedro Orive era muito guloso e nas suas andanças nos sertões de Piedade e Ibiuna, a cavalo com seu ponche, chapéu, revolver Colt Cavalinho (ah como eu queria tê-lo guardado pois é arma de coleção) *pediu poso* num conhecido na beira da estrada. Foi bem recebido e no dia seguinte, logo cedo foi convidado a se sentar à mesa para usufruir de um lauto café da manhã. No centro da mesa uma travessa transbordando de “virado de ovo”. Para quem nunca comeu são ovos estalados com queijo branco e farinha de milho. Iguaria caipira inesquecível. Ele adorava e puxou a travessa e lotou um prato fundo já salivando a boca para atacar a apetitosa e fumegante comida. Quando deu a primeira colherada veio a surpresa: faziam o virado com açúcar e não com sal como ele estava acostumado. Com vergonha de devolver, teve que ir engolindo devagar sorvendo “canecadas de café para fazer rodar o virado prá dentro do bucho”. Dona Marvina tripudiava depois: “Tá vendo hóme guloso, tinha que inchê o prato: Bem feito”. E ele soltava sonoras gargalhadas.      
@@ -695,7 +696,7 @@ Algumas expressões de novelas que viraram quase que Saltopiraporices!
 - **Ó XENTE, MY GOD:** Dona Altiva (Eva Wilma) na novela “A Indomada”.     
 - **DEITE, QUE EU VOU LHE USAR:** Coronel Justino (José Wilker) quando queria ter relações com a esposa Sinhazinha (Maitê Proença) que acabou lhe botando os chifres com o dentista Dr Osmundo  (Erick Marmo) mas, acabaram fuzilados em pleno ato pelo Coronel corneado.       
 - **HONRA SE LAVA COM SANGUE:** Bordão e costume dos nordestinos corneados.      
-- **VAMO BEBÊ  FULANO?:** Dessa forma se homenageava o morto, em intermináveis rodadas de cachaça, no gargalo, madrugada adentro.       
+- **VAMO BEBÊ FULANO?:** Dessa forma se homenageava o morto, em intermináveis rodadas de cachaça, no gargalo, madrugada adentro.       
 - **TÔ CERTO OU TÔ ERRADO?:** Sinhozinho Malta, o Coronel de chapelão chacoalhando concomitantemente a sua grossa pulseira barulhenta (com o som caracterísco amplificado pelos sonoplastas.     
 - **VOU AO ESTILISTA CAPILAR:** Professor Astromar indo ao barbeiro.
 - **BANDIDO FACINOROSO, CARCARÁ SANGUINOLENTO:** Sinhozinho Malta ao se referir a Roque Santeiro.
