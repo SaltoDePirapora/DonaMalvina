@@ -1,21 +1,21 @@
 {
     "collab_server" : "",
     "contents" : "",
-    "created" : 1606757568920.000,
+    "created" : 1618419913660.000,
     "dirty" : false,
     "encoding" : "UTF8",
     "folds" : "",
-    "hash" : "1601709526",
-    "id" : "B4B289F0",
-    "lastKnownWriteTime" : 1618346178,
-    "last_content_update" : 1618346178913,
+    "hash" : "2853092282",
+    "id" : "4F94C061",
+    "lastKnownWriteTime" : 1618423204,
+    "last_content_update" : 1618423204071,
     "path" : "C:/Users/Vermelho/OneDrive/GitHub/DonaMalvina/index.Rmd",
     "project_path" : "index.Rmd",
     "properties" : {
-        "cursorPosition" : "6,2",
+        "cursorPosition" : "10,70",
         "scrollLine" : "0"
     },
-    "relative_order" : 7,
+    "relative_order" : 3,
     "source_on_save" : false,
     "source_window" : "",
     "type" : "r_markdown"
