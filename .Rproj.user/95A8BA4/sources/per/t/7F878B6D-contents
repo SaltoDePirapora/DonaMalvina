@@ -1,0 +1,23 @@
+--- 
+lang: pt-BR
+title: "R Markdown: The Definitive Guide"
+author: "Carlos antunes de Souza"
+date: "`r Sys.Date()`"
+output: 
+   bookdown::gitbook: default
+documentclass: book
+bibliography: [book.bib, packages.bib]
+biblio-style: apalike
+link-citations: yes
+github-repo: SaltoDePirapora/DonaMalvina
+colorlinks: yes
+graphics: yes
+lot: yes
+lof: yes
+fontsize: 11pt
+mainfont: Palatino
+monofont: "Source Code Pro"
+monofontoptions: "Scale=0.8"
+site: bookdown::bookdown_site
+description: "Histórias do Carlinhos da Malvina"
+---
