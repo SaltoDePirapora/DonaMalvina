@@ -387,7 +387,16 @@ Era ela o próprio Correio e ganhou o apelido por causa da mala do correio que c
 
 ##As Jardinêra que levava as turma pá cidade
 Na Salto de Pirapora daqueles tempos só tinha ônibus da Viação Pessutti prá Sorocaba às 8 da manhã, meio dia e 4 da tarde. O motorista era o Porfírio, irmão do Dito Frango. Às 9:15 passava o ônibus que vinha de São Miguel Arcanjo, da empresa do Alcidino França. Esse ônibus fazia ponto no bar do Chico Celim, em frente o casão do Agenor, perto do chafariz. Era famoso o pastel e a almôndega (falava-se *harmônica* de carne do bar do Chico, acompanhados de taubaína, uma gasosa (soda limonada) ou Crush, refrigerante artificial de laranja. Eram famosos os sorvetes do bar do Chico, feitos da maneira artesanal e antiga: as formas ficavam dentro de uma geladeira enorme, imersas na salmoura. Sorvetes de groselha, côco branco e o meu preferido côco queimado com uma faixa mais escura na parte inferior. O ponto final em Sorocaba era em frente ao Mercado Municipal, onde o pessoal matava a fome com o “bolinho de pêxe” feito de sardinha. Quando alguém falava que ia prá Sorocaba já perguntavam: “Vai pá cidade cumê bolinho de pêxe”?     
-Já que lembramos do Crush, tem uma historinha do Gordo, irmão do Pracídio. Uma vez ele *apiô* do cavalo (o Gordo sempre andava a cavalo pela cidade) em frente ao bar do Áureo, no canto da pracinha (que depois virou uma loja de um dos turcos) e pediu uma garrafinha de Crush. A garrafa era bem característica: marrom bem escuro, formada como se fosse um conjuto de aneis de vidro. Não dava para ver o que tinha dentre. O Gordo abriu a garrafinha e levou direto à boca, morto de sede. Surpresa: tinha um charuto dentro da Crush. Ele maldisse todas as gerações.... Ficou por isso mesmo. Se fosse hoje ele poderia ganhar uma boa grana do fabricante!!!
+Já que lembramos do Crush, tem uma historinha do Gordo, irmão do Pracídio. Uma vez ele *apiô* do cavalo (o Gordo sempre andava a cavalo pela cidade) em frente ao bar do Áureo, no canto da pracinha (que depois virou uma loja de um dos turcos) e pediu uma garrafinha de Crush. A garrafa era bem característica: marrom bem escuro, formada como se fosse um conjuto de aneis de vidro. Não dava para ver o que tinha dentre. O Gordo abriu a garrafinha e levou direto à boca, morto de sede. Surpresa: tinha um charuto dentro da Crush. Ele maldisse todas as gerações.... Ficou por isso mesmo. Se fosse hoje ele poderia ganhar uma boa grana do fabricante!!!     
+
+As turma que ia pá Sorocaba  fazia uma procissão. O programa era:     
+1.  Comprá um macaio (fumo de corda) na banca do Zé Franco no Mercado central.     
+2.  Cumê bolinho de pêxe (sardinha) no mesmo mercado. Podia ser também um bolinho caipira  (frango desfiado com massa de farinha de milho, aliás delicioso) ou uma “harmônica” (almôndega). Se fosse endinheirado ia almoçar no Carmona ali perto e comer o famoso comercial. Aquele mesmo que o Tanazinho deixou o Carmona fulo de raiva, quando comeu tudinho e ainda limpou a vitrine de salgados.      
+3.  Comprá umas fruita na Quitanda do Lambreta, ali perto também.    
+4.  “Comprá carçado” na Casa Latorre ou outras na rua Dr. Braguinha, chamada por alguns sorocabanos posudos de Rua Direita de Sorocaba.     
+5.  “Comprá uns arriame ou tráia de côro” na casa Marthe.     
+6.  “Comprá umas tranquêra na loja de ferrage” do Maurício Derlosso (Delosso)     
+7.  Mandá aviá uma receita de ócros na Oculândia do Alfredo Meinken ou outra ótica por ali.      
 
 ##Caminhão do Írso Leitêro
 Este era outro meio de transporte de favor para Sorocaba. Muitas pessoas pegavam carona com o caminhão de leite do Írso Leiteiro que fazia a viagem diariamente coletando o leite dos produtores da região e levando em grandes latões de 200 litros (tenho dois) para a Colaso (Cooperativa de Laticínios de Sorocaba). De vez em quando o motorista era o Bértão Lôco, irmão do Chico Americano, que tinha apelido por ser descendente de americanos, sobrenome Daniel. O Bértão fazia juz ao apelido. Aprontou poucas e boas. O caminhão do leite fazia uma parada no Itinga, na venda do Gentirlão, onde os cereais eram vendidos na concha (tenho duas) retirados de enormes barricas. O Bértão adorava soltar bombas de alto teor explosivo e numa dessas acendeu uma bem “taluda” e escondeu no meio da barrica de feijão e saiu disfarçadamente. A explosão literalmente espalhou feijão pela estrada de Salto por uns duzentos metros. Em Araçoiaba da Serra numa sexta feira da Paixão, levou um bode na praça central, amarrou uma corda no grão do bode e amarrou no sino da igreja. Á meia noite cada uma das doze badaladas era seguida de um berro do bode, que sentia a fisgada da corda esticada naquele lugar muito sensível e soltava o berro formando uma sinfonia: blém, béééé, blém, bééé. Quem contava essa história era o Nuna, filho do Chico Americano e portanto sobrinho do Bertão. Eu sinceramente duvido da veracidade dessa história mas de qualquer forma é muito engraçado. Imaginem Alvarenga e Ranchinho narrando uma história dessas com toda aquela picardia. Os ajudantes do caminhão de leite eram o Guracy e o Zorro, negro folclórico, consumidor diário de hectolitros de cachaça, irmão do Narciso e do Gusto Porrete. A família morava no número zero da futura Avenida Pedro Pires de Melo, na época um areal imenso, tão pesado que não dava para atravessar pedalando uma bicicleta. O Guaracy era igualmente bem locão e quando pegavam um carona como o Toninho do Itinga, judiavam do coitado a viagem inteira. O Guaracy, com o caminhão em movimento, descia pelo paralamas e viajava abraçado ao farol do Chevrolet Brasil até Sorocaba. Caminhões na época: os importados Chevrolet, Ford, Fargo, Studebaker, De Soto e o pioneiro nacional: o Fenemê (FNM – Fábrica Nacional de Motores), um cara chata famoso até hoje. 
@@ -601,6 +610,11 @@ Procurei fazer um registro das gírias e maneirismos que ouvi na convivência co
 -**TÁ CUM CALOR? BATA A BUNDA NO TAMBOR**      
 -**TÁ CUM FRIO? BATA A BUNDA NO RIO**    
 -**CHUVA COM SÓR, CASAMENTO DE ESPANHÓR**    
+-**TERRENO MUITO CEDENTADO** – Os “minhocas” ou seja gente da terra assim se referiam aos terrenos muito acidentados, difíceis para as práticas agrícolas como arar, gradear, semear e colher. Fazíamos piada sobre esses terrenos íngremes: “Tem que plantá milho cum espingarda e coiê de laço” ou “o boi pasta dis costa”.     
+-**VACAGALOPORCO** – Os nomes de três animais formavam um cacófato nada sugestivo.    
+-**MEUS OLHOS POR TIÇÃO E MEU CORAÇÃO POR TIGELA** – Abusando dos cacófatos.    
+-**JOGO DO BICHO** - Deu na cabeça: dezena, centena e milhar. Quando o apostador do joguinho ilegal mas, disseminado amplamente, “lavava a égua” acertando nas três possibilidades.          
+-**BATÊ UM RANGO, FILÁ UMA  BÓIA, BATÊ UMA JANTA** - Sinônimos para comida ou almoço ou janta.      
 
 **MARVINICES**
 
@@ -618,7 +632,19 @@ Dona Marvina também tinha seus “ditos” e expressões peculiares!!
 - **SÓ PÁ INGLEIS VÊ:** Está enganando, escamoteando ou seja fazendo bonito só para o inglês (o estrangeiro) ver.      
 - **AQUELE NUM É DE MATÁ C´O A UNHA:** O cara não é fácil.     
 - **MIJÔ FORA DA PICHORRA:** Deu pá tráis. Não honrou o trato. O mesmo que *mijô pá tráis*.      
-- **O ROTO FALANDO DO RASGADO:** O mesmo que o sujo falando do incardido.      
+- **O ROTO FALANDO DO RASGADO:** O mesmo que o sujo falando do incardido.     
+- **PODE AZULÁ DAQUI:** suma da minha frente.     
+- **AQUELA PITOTUDA:** Quando se referia às mulheres que usavam o tal “pitote” para manter o cabelo preso num coque em cima da cabeça.    
+- **CANTA BEM SEM VIOLA:** Quando alguém ousava pedir algo de graça.    
+- **FEZ DE GATO E SAPATO:** Abusou. Escarneceu. Com certeza faz analogia com um gato destruindo um sapato.     
+- **OVO VIRADO:** Dona Malvina usava muito essa expressão quando alguém estava mal humorado, “cabisbundo”(invenção minha) ou macambúzio(kkkk). A galinha quando está com esse incômodo não conseguia mais por ovos ,nem comer ou beber ou defecar. Ficava numa situação irritadiça e incômoda, daí a analogia com o mau humor dos humanos.     
+- **GORFANDO:** Antigamente se dizia que a pessoa estava *gumitano* ou com *ânsia de gômito*. Quando a pessoa estava vomitando também se usava a expressão *tá gorfando* ou seja expelindo golfadas.     
+- **INTOJADA:** Num tenho paciência co´a aquela muié intojada. É um intojo. O intojo poderia definir a *frescura* da pessoa ou por querer  esnobar junto às pessoas.     
+- **CARNE DE VACA:** O Luiz meu irmão também  usava muito a expressão. Quando uma coisa estava ficando chata ou repetitiva diziam: “Chi, isso tá ficando carne de vaca”.  No sentido que enjoava, “dava intojo”.    
+- **ESTRONDO:** Quando estava “trovejano” minha mãe dizia: Nossa, cada baita estrondo. Ou então: “Aquilo foi um estrondo” quando queria dizer que alguma coisa fez sucesso ou causou impacto.    
+- **TÔ VENDENDO PELO PREÇO QUE EU COMPREI:** Quando contava um “causo” e alguém começava a duvidar da história. Aliás eu odeio essa postura quando conto alguma coisa e ouço: Será que é verdade? Não pode ser, é impossível. Costumo responder com a expressão “malviniana” e digo que não fui e nem vou investigar nem fazer interrogatório aos personagens da história.     
+- **A PORTA DA RUA É A SERVENTIA DA CASA:** Quando a conversa de uma visita não estava do seu gosto ou quando nós reclamávamos de alguma coisa.    
+- **MANTÊGA DERRETIDA:** Quando uma criança (inclusive eu) começava a chorar sem motivo.    
 
 **PEDRO ORIVICES:** 
 
@@ -652,28 +678,29 @@ O vocabulário do Pedro Orives era bem característico, peculiar e criativo!
 - **NUVIA MACHORRA:** Novilha que não pega cria.       
 - **RANCOIO:** – O porco ou boi quando tem uma *capação* defeituosa ou seja inutiliza apenas um *grão* (testículo) continua a dar coberturas porém não *emprenha* as fêmeas; fode mas não cria.        
 - **SUJEITO CHARQUE:** Cara chato. Deve ser porquê o charque é muito salgado, além de seboso.       
-- **VIVA O HERME DA FONSECA:** – Deve ter origem no tempo da revolução mas ele usava para qualquer comemoração e especialmente para brindar com um copo de cerveja.    
-- **VAI CAGÁ ONE NUM FÊDA:** – Suma daqui, não encha o saco.     
-- **FOI DE ROÇÁ:** – Prá dizer que foi num eito só. Servia para designar uma briga ou “um péga prá capar”. Quando faz um serviço  completo: “Demo um péga de roçá”.   
-- **PASSÔ DE RABO ERGUIDO:** – Para pessoas que passavam sem cumprimentar. O animal que não quer ser pego na corda ergue o rabo e desata num *carreirão*.      
-- **NÃO AGUENTÔ NO PÉ DA ESTRELA:** – Com certeza se referia à estrela da espora do cavalo ou mesmo a ponta do ferrão, com que se cutucava os bois de carro. Na viadagem de hoje seria considerado crime por molestar o animal.     
+- **VIVA O HERME DA FONSECA:** Deve ter origem no tempo da revolução mas ele usava para qualquer comemoração e especialmente para brindar com um copo de cerveja.    
+- **VAI CAGÁ ONE NUM FÊDA:** Suma daqui, não encha o saco.     
+- **FOI DE ROÇÁ:** Prá dizer que foi num eito só. Servia para designar uma briga ou “um péga prá capar”. Quando faz um serviço  completo: “Demo um péga de roçá”.   
+- **PASSÔ DE RABO ERGUIDO:** Para pessoas que passavam sem cumprimentar. O animal que não quer ser pego na corda ergue o rabo e desata num *carreirão*.      
+- **NÃO AGUENTÔ NO PÉ DA ESTRELA:** Com certeza se referia à estrela da espora do cavalo ou mesmo a ponta do ferrão, com que se cutucava os bois de carro. Na viadagem de hoje seria considerado crime por molestar o animal.     
 - **HOJE NUM FIZ NEM PÔ FUMO:** – Quando não se produziu nada ou melhor não ganhou nem *um déstão de mér cuado*.    
-- **DA PRATELÊRA DE CIMA:** – Para pessoas de classe mais alta, ou mais refinadas ou cultas.     
-- **TOCÔ SANFONA:** – Quando se desistia do negócio que já estava engatilhado.    
-- **MIJÔ PÁ TRAIS:** – No mesmo sentido do anterior: *Mijô pá trais que nem égua*.    
-- **TOME TENÊNCIA:** – Tome jeito. Tome tento.   
-- **REGULAR DO MEIO:** – Quando não estava muito bom nem muito ruim. Para comida, trabalho ou para a qualidade de um animal.     
-- **TÁ MADURANO:** – Usava quando ficava apertado para correr no banheiro: “Acuda Turca (para Dona Malvina) que tá madurano"", ou seja a fruta que está para  cair do galho, ou de ser apanhada. Analogia com a merda mesmo.     
-- **A TURCA LEVANTOU ESPAIANDO BRASA PÁ TUDO LADO:** – Quando a Dona Marvina levantava brava.        
-- **FORTE E RIJO?:** – Uma saudação muito usada quando se encontrava um amigo, que há tempos não se via.     
-- **INFIÔ A VIOLA NO SACO:** – Saiu perdendo, saiu sem graça à moda de um violeiro que não agradou.     
-- **NUM É DE MATÁ C´O A UNHA:** – Não se mata como pulga.     
-- **HOJE ELA LEVANTÔ C´O OVO VIRADO:** – Quando a mulher levanta de mau humor, à semelhança de galinha desesperada  que não consegue botar o ovo, porquê está virado.      
-- **DOR´AMA PÔ CORPO:** –      
-- **TÔ DERREADO:** – Tá acabado.     
-- **TÔ DISINXAVIDO:** – Tá sem graça.     
-- **QUEM VÊ CARA NÃO VÊ CORAÇÃO:** – Para pessoas falsas ou más.
+- **DA PRATELÊRA DE CIMA:** Para pessoas de classe mais alta, ou mais refinadas ou cultas.     
+- **TOCÔ SANFONA:** Quando se desistia do negócio que já estava engatilhado.    
+- **MIJÔ PÁ TRAIS:** No mesmo sentido do anterior: *Mijô pá trais que nem égua*.    
+- **TOME TENÊNCIA:** Tome jeito. Tome tento.   
+- **REGULAR DO MEIO:** Quando não estava muito bom nem muito ruim. Para comida, trabalho ou para a qualidade de um animal.     
+- **TÁ MADURANO:** Usava quando ficava apertado para correr no banheiro: “Acuda Turca (para Dona Malvina) que tá madurano"", ou seja a fruta que está para  cair do galho, ou de ser apanhada. Analogia com a merda mesmo.     
+- **A TURCA LEVANTOU ESPAIANDO BRASA PÁ TUDO LADO:** Quando a Dona Marvina levantava brava.        
+- **FORTE E RIJO?:** Uma saudação muito usada quando se encontrava um amigo, que há tempos não se via.     
+- **INFIÔ A VIOLA NO SACO:** Saiu perdendo, saiu sem graça à moda de um violeiro que não agradou.     
+- **NUM É DE MATÁ C´O A UNHA:** Não se mata como pulga.     
+- **HOJE ELA LEVANTÔ C´O OVO VIRADO:** Quando a mulher levanta de mau humor, à semelhança de galinha desesperada  que não consegue botar o ovo, porquê está virado.      
+- **DOR´AMA PÔ CORPO:**       
+- **TÔ DERREADO:** Tá acabado.     
+- **TÔ DISINXAVIDO:** Tá sem graça.     
+- **QUEM VÊ CARA NÃO VÊ CORAÇÃO:** Para pessoas falsas ou más.
 - **MALACAFENTO:** – Sujeito mal ajambrado, de péssimo aspecto.
+- **EU SE ENFORCO NUM PÉ DE COVE:** Quando só de gozação dizia que preferia morrer do que passar por determinada situação.
 
 
 ## Modernices (ou não) usadas em Salto de Pirapora     
