@@ -5,7 +5,7 @@ title: |
 subtitle: |
   <center><span style="color:blue">Carlinhos da Malvina, um bom vivant na sua própria definição: Minha Família e Minha Cidade</center>
 author: <center>Carlos Antunes de Souza</center>
-date: <center>03 de maio de 2021</center>
+date: <center>04 de maio de 2021</center>
 
 geometry: "left=2cm,right=2cm,top=2cm,bottom=2cm"
 fontsize: 12pt
@@ -13,7 +13,7 @@ fontsize: 12pt
 site: bookdown::bookdown_site
 
 output:
-   bookdown::gitbook: default
+  bookdown::gitbook: default
 #  bookdown::pdf_book: default
 documentclass: book
 
