@@ -14,7 +14,7 @@
     "properties" : {
         "cursorPosition" : "616,100",
         "ignored_words" : "div,align,justify,Antonho,Lindonor,Osteldo,Oster,Fargo,Chaterley,ítem,Kfuri\n",
-        "scrollLine" : "583"
+        "scrollLine" : "0"
     },
     "relative_order" : 3,
     "source_on_save" : false,
