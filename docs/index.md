@@ -7,7 +7,7 @@ subtitle: |
 author: |
   <center><div style="font-size: 25px">Carlos Antunes de Souza</center>
   <center>![](Imagens/OSALTOB.JPEG)</center>
-date: <center>Atualizado em 10 de maio de 2021</center>
+date: <center>Atualizado em 20 de julho de 2021</center>
 
 geometry: "left=2cm,right=2cm,top=2cm,bottom=2cm"
 fontsize: 12pt
