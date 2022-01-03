@@ -4,7 +4,7 @@ title: <center><span style="color:blue">Algumas Histórias</center>
 subtitle: |
   <center><span style="color:blue">Carlinhos da Malvina, um bom vivant na sua própria definição: Minha Família e Minha Cidade</center>
 author: |
-  <center>![](Imagens/OSaltoB.JPEG)</center>
+  <center>![](Imagens/OSalto.jpg)</center>
   <center><div style="font-size: 25px">Carlos Antunes de Souza</center>
 date: <center>Atualizado em 03 de janeiro de 2022</center>
 
