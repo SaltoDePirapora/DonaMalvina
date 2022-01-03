@@ -1,13 +1,12 @@
 ---
 lang: pt-BR
-title: |
-  <center>Algumas Histórias</center>
+title: <center>Algumas Histórias</center>
 subtitle: |
   <center><span style="color:blue">Carlinhos da Malvina, um bom vivant na sua própria definição: Minha Família e Minha Cidade</center>
 author: |
-  <center><div style="font-size: 25px">Carlos Antunes de Souza</center>
   <center>![](Imagens/OSALTOB.JPEG)</center>
-date: <center>Atualizado em 07 de dezembro de 2021</center>
+  <center><div style="font-size: 25px">Carlos Antunes de Souza</center>
+date: <center>Atualizado em 03 de janeiro de 2022</center>
 
 geometry: "left=2cm,right=2cm,top=2cm,bottom=2cm"
 fontsize: 12pt
@@ -25,8 +24,6 @@ github-repo: SaltoDePirapora/DonaMalvina
 description: "HISTÓRIAS DA FAMÍLIA E DE SALTO DE PIRAPORA BY CARLINHOS DA MALVINA, UM BOM VIVANT NA SUA PRÓPRIA DEFINIÇÃO"
 
 ---
-#- {-}
-
 # Introdução {-}
 <div style="text-align: justify">
 Muito bem: não tenho a menor pretensão de arrastar seguidores então vou escrevendo e mudando de assunto sem preocupação com a ordem cronológica ou um roteiro estudado ou pré estabelecido. A ideia é fazer apenas um registro de todas as experiências boas que vivi, assisti ou presenciei. Como já vivi bastante e pretendo viver muito mais, vou ter muita história para contar. Em matéria de viver eu quero dar VDO como se dizia no tempo do fusca que só marcava 120 km/h e depois embaixo estava escrito VDO que seria 140 ou 150 km/h.      
