@@ -1,6 +1,6 @@
 ---
 lang: pt-BR
-title: <center>Algumas Histórias</center>
+title: <center><span style="color:blue">Algumas Histórias</center>
 subtitle: |
   <center><span style="color:blue">Carlinhos da Malvina, um bom vivant na sua própria definição: Minha Família e Minha Cidade</center>
 author: |
