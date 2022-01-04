@@ -184,7 +184,7 @@ Procurei programas de Nhô Juca   na internet mas não achei nenhum registro  al
 **Jogar o dentinho de leite para a lua ou a estrela**    
 **Entregar a chupeta para o Papai Noel:** para abandonar o uso.     
 **Verrugas:** tinha duas simpatias infalíveis para estirpá-as: 1 - Colocar um grão de milho na verruga e por a galinha para comer (Da irmã do meu amigo Nelsinho Pazetti:  a galinha comeu a verruga e foi só sangue). 2 – Passar toicinho na verruga e jogar de costas, sem olhar para trás, dentro de um formigueiro. Minha mulher a Patrícia disse que fez para a filha mais velha e funcionou.(A prudência recomenda não duvidar do sobrenatural!!)     
-**Chás e mezinhas**: ruibardo, melissa, erva doce, canela, puejo, marcela, hortelã, chá de limão “bode”, xarope de guaco com mel.     
+**Chás e mezinhas**: ruibarbo, melissa, erva doce, canela, puejo, marcela, hortelã, chá de limão “bode”, xarope de guaco com mel.     
 
 ## A saga do tenista Carlinhos da Dona Malvina 
 Desanimado com as frequentes contusões no futebol, inclusive com duas cirurgias para retirada dos meniscos enveredei para o tênis começando a jogar no Tênis Clube de  Cascavel. Em São Paulo joguei no Hobby Sports, com várias quadras espalhadas pela capital, também no Banespa E.C e na AABB (Associação Atlética Banco do Brasil),   Swiming Center no Vergueiro, em quadras particulares  no Brooklin e Pinheiros  e públicas como no Parque Ibirapuera e no Parque Villa Lobos e mais um sem número de quadras. Em Sorocaba na ATT – Associação Takeda de Tênis, no Tênis Club do Helinho perto do mercado distrital de Sorocaba. Também   no Ipanema Club, na Family e  no Clube de Campo e por último no Quintela Tênis aqui em Salto de Pirapora mesmo. 
