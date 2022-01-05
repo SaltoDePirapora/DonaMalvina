@@ -809,6 +809,39 @@ O vocabulário do Pedro Ourives era bem característico, peculiar e criativo!
 - **ARMÁ UM LAÇO** – O ato de defecar na visão dele simula a armação do laço de boi.     
 - **UMA NINHADA BOA** – O mesmo sentido de armar um laço.    
 
+## Saltopiraporice de raiz: História do Sarto nos modo do  caipira falá   
+Vamos criar personagens fictícios para reproduzir uma imaginária conversa entre pessoas tipicamente do sítio. Caipira já foi depreciativo mas hoje todos temos orgulho de nossas origens e o campo, o sítio e a roça estão na moda. Não na moda dos sertanojos e breganejos mas sim na moda para os que apreciam a autenticidade das pessoas, seu falar, seus usos e costumes. Vamos lá então:    
+Nhô João chega na casa do cumpadre, apeia da égua zaina, enrosca as rédia numa cerquinha de palanque de cambará já cumido pô tempo e ingata uma prosa:    
+Bastarde cumpadre Pedro, mecê tá bão? I a patroa como é que anda, miorô daquela dor nos quarto? I os minino tão cresceno que nem xuxu na bêra do reberão?    
+Bastarde cumpade Juão. Tamo indo cá graça de Deus Nosso Sinhô todo poderoso. I mecê tá bão, a famía tá boa?    
+Temo bão tamém cá graça do nosso Pai. Diaçãozinho do caçula que andô muito már do custipado. Tava cum defruço mais miorô.  O minino é ivê o tio, irmão da muié meu. Vira i mexe fica engripado. Puis óia  compadre, essa éguinha Chita é boa mêmo. Viemo numa trotiada só.  Essa légua i meia de distânça até a vossa morada a bicha feiz in trinta minuto. O andar dela é tão maciu que acendi um paiêro na saída de casa e malemá pinchô a cinza do macaio pô caminho, de tão maciu. Parece inté uma rede daquelas de durmi dispois da bóia. É boa de charrete tamém, isperta na lida c´ô gado e ainda vira a pipa da maromba do laria o dia intero sem recramá. Sortô, dá uns rastoio de mio do paió e ela sai gardeceno i relinchano de gosto pá chega na aguada na bêra do grotão. Num qué comprá o alimar? Eu pensei in num vendê por dinhêro nenhum. Já chegaro até quatrocentos conto de réis na bichinha, mais refuguei. Agora se for pô cumpadre é bem capaiz que eu mude as idéia. (Uma conversa longa dando voltas e querendo empurrar a égua, já bem judiadinha, no compadre.)     
+Puis ói cumpadre Pedro, num tenho percisão de otro alimár pás minha lida, que é pôca e tenho tamém o turdio que é muito bão de lida: manso, num impaca, num dá arrelia. Agora caso o cumpade quêra fazê uma breganha i vortá um cem conto eu perco o querê bem que tenho no bicho. (Outra conversa mole, tentando ser mais esperto que o outro, tudo na maior camaradagem)    
+Puis ói, causo  o cumpadre quizé fazê nas oreia, nós fizemo uma boa hora.     
+(Percebendo que o outro não é bobo e não vai entrar na sua conversa mole, retruca)    
+Puis é cumpade Juão, num vô disfazê do vosso alimar mais tô vendo qui num ter artura pá nóis fazê a breganha. Bamo dexá de lado essa prosa i sentemo aqui nesse bancão de madêra lavrada no machado, a cumade passa um bão café (doce e fraco como de costume no sítio), nóis toma, acende dois paiêro i bamo prosiá dexando pá quarqué hora essa conversa de breganhá os alimar.     
+Crara, cue um café bem quente pá nóis tomá aqui no terrêro imbaxo do pé de aruera i vamo batê uns dois dedo de prósa.
+Mais cumpadre, essa aroera num é da braba?    
+Não cumpade, essa é da mansa, num tem perigo de dá vermeião pás costa  i nem cumichão nas parte.      
+Puis é cumpadre, tá bunita a rocinha de mio. Quanto dá esse eito que o cumpadre prantô? É pá mio verde ô é pá coiê seco dispois de coivarado?     
+Esse eito dá mais ou meno tarefa i meia, quase um solaminho (duas tarefas). Nóis aproveita uma oitada pá fazê umas pamonha i uma sopa de mio verde cum frango caneludo e joga umas cambuquira na panela i na hora de cumê eu apreceio ponhá umas gota de limão bode no cardo. O que secá nóis inresteia bem inrestiado i pindura no oitão do paió pá guentá inté a coieita do ano que vem. I ainda mandemo fazê farelo pás vaca, quirera pás galinha i fubá pá nóis cumê umas pulenta cum carne do capado que vamo matá dispois da somana santa. Nóis gosta de matá o bicho passado a quaresma. Inhante disso, é pecado mortar. O úrtimo capado que matemo deu 7 arroba mais dois canivete e dois cabo de rêio. Mais o cachaço já tá cubrino as porca pá podê apartá ôtro capado pás festa do Natar i do dia de Ano. Sobrano carne nóis frita, aparta os torresmo i guarda numa lata cum banha i vamo rueno até chegá o tempo da ôtra matança. Nóis num perde nadica de nada do porco: Faiz arroiz cum suã, viradinho dos miúdo i linguiça que fica pendurada no fumêro in cima do fogão de lenha. Nóis assa o pernir  no Natar, na fornaia que fizemo caquele cupim grande que arrastemo no tirante cuma junta de boi carrêro bão de lida. Abrimo uma boca no cupim cum  machado i ficô um forno especiar de bão. 
+Puis é cumpadre. Nóis tamém gostemo de matá um leitão e um garrote, modos que no finar do ano vem tudo a famiage de SunPaulo, vem  tudo morto de fome cum sodade do de cumê nosso. Dá trabaio carniá o garrote e pelá o porco sapecado na paia de mio mais dá gosto vê as turma tocá gaita numas banda de custela. Ainda nóis faiz uma côve na banha de porco e um virado de feijão verde, acabado de coiê  no roçado. Como dizia o cumpadre Maneco Calota, o que é de gosto é regalo da vida.     
+Puis é cumpadre, a prosa tá boa, o macaio é do bão mais o tempo tá carmariano i vô tê de  cutucá a briosa na ispora pá móde di iscapá da chuva. Eu uósque (acho que) vai tê até istrondo de trovejo. Os relampio já tá riscano o céu.     
+Mais que már lhe pregunte a vossa fia mais véia, aquela que tava encroada, arrumô marido. Que bão: diminói a dispesa nè cumpadi?    
+Puis óia cumpadi, casô cum rapaiz bão que até toca bumbardino na igreja crente. I o mió é que a sogra é podre de rica. Sabe né cumpadi: sogra rica i porca gorda só dá lucro quando morre.    
+Mais cumpade, num teve nem festança?    
+Ché, a sogra é rica mais pense numa muié mão de vaca. O borso dela asque tem cascavézinha dentro, puis num infia a mão nem pá pagá promessa. É bão porque sobra mais pô fio adispois qui ela viajá. Deu umas terra cascaienta po fio prantá mais é na base da meia. Metade pá cada um. I ele inda tem que compra a semente i o adubre. Na hora da coieita num dá nem uma mãozinha. Pudia arrumá uns camarada dela qui é o que num farta. Véia pão dura memo.     
+Intão fica ansim cumpadre. Vô pegá o eito inhante da chuva. Apareça c´a cumadre pá nóis prosiá, tumá um café cum bolinho de chuva. Pamorde que a criança gosta quando tem visita pá cumê umas coisa deferente.     
+Intão boa caminhada pocê cô seu alimar. Mais vá no trote, num adianta í na carrêra porquê num faiz diferença: mecê adianta o passo e pega a chuva que ia pegá lá na frente do mêmo jeito. Se num trôxe a capa poncho i o chapéu de barbicacho posso cedê pá mecê.
+Num carece, gardecido. Inté a vórta.    
+Inté.     
+
+## Saltopiraporices das antigas - nossas autoridades    
+Como de costume em todas as cidades pequenas, os delegados eram nomeados pela classe política mandante. Ou seja, não eram os delegados *de carreira* como seria mais tarde.    
+Na nossa cidade os delegados foram Artemio Bordieri, Arcidão (sogro do Walter Benedetti) entre outros.    
+Depois veio o primeiro delegado de carreira conhecido como  *Tenentinho*. Acho que o nome era Paulo. Ele revolucionou os métodos para punir os encarcerados. Num caso ele fez o preso medir o perímetro da praça com um palito de fósforo, e outros castigos mais. Era temido e respeitado e na sua época ninguém queria ser preso pois seus castigos eram temidos.     
+Os soldados que me lembro foram o Seu Antídio, super boa praça e de cuja família já falamos. Tinha o folclórico Zé Pilar, o Zé da Pinta,  o Cabo Arlindo e outros não tão conhecidos pois tiveram breves passagens pela cidade. 
+Eram nomeados também os *inspetores de quarteirão*. Isso mesmo: cada quarteirão era vigiado por um inspetor. Os juízes de menores também eram nomeados politicamente. Para mim o mais famoso era o *Nambú* (Misael de Oliveira Andrade) que judiou muito de mim quando intimava os garotos a fornecer cerveja gratuita para ele e o seu séquito no nosso clubinho onde fazíamos malabarismos para equilibrar receita e despesas. Tenho hoje muita amizade com ele. Tiramos até uma foto juntos no bar do Samuel (veja acima, no item sobre o Time dos Paradinhos), há pouco tempo mas ele diz não se lembrar mais de quanto me provocou. Também está com mais de oitenta anos, lutou bravamente com a saúde, quase viajou antes do combinado (Boldrin) mas tá até tomando uma cervejinha. (**Nota do editor:** os problemas de saúde do Nambu são bem antigos, pois me lembro que ele, que era freguês do bar da Dona Rosa, estava sempre "encostado pelo INPS", embora fosse goleiro do time dos Parados.)
+
 ## Modernices (ou não) usadas em Salto de Pirapora     
 - **JACARÉ QUE DORME DE BARRIGA PRÁ CIMA VIRA BOLSA DE MADAME:** Autoexplicativa.    
 - **X-MICO OU X-PANZÉ X-VELÓRIO:** Os dois primeiros para pão com banana e o último para o clássico *sanduba de mortandela* dos velórios acompanhado de café bem doce (para enjoar logo) e fraco (para render).    
@@ -817,7 +850,6 @@ O vocabulário do Pedro Ourives era bem característico, peculiar e criativo!
 - **MAS QUE CACHORRÃO:** Usada em São Paulo década de 50 para mulher boazuda. Mas as espertinhas tinham a resposta na ponta da língua: cachorrão sim, mas não pega viado. kkkkkk     
 - **CARA DE CAPIVARA ATROPELADA:** Mulher feia.     
 - **A CICLOVIA TIM MAIA (RJ) NÃO AGUENTOU A PRIMEIRA RESSACA:** Numa referência à ciclovia Tim Maia que desabou.    
-
 
 ##  Novelices de "O Bem Amado", *Roque Santeiro* e outras
 Algumas expressões de novelas que viraram quase que Saltopiraporices!    
@@ -839,6 +871,52 @@ Algumas expressões de novelas que viraram quase que Saltopiraporices!
 - **VOU AO ESTILISTA CAPILAR:** Professor Astromar indo ao barbeiro.    
 - **BANDIDO FACINOROSO, CARCARÁ SANGUINOLENTO:** Sinhozinho Malta ao se referir a Roque Santeiro.    
 - **JENIPAPANÇA:** Quando era convidado para tomar licor de jenipapo na casa das solteironas *encroadas* (Alvarenga e Ranchinho). Jenipapança  tinha sentido dúbio, carregada de malícia e aquela piscada de olho do Coronel, muito da sem vergonha como diria o próprio.    
+
+**Novela roque santeiro:**    
+
+**Falas célebres do Sinhozinho Malta**   
+
+* A porcina se meteu numa *bananosa*.   
+* A casa vai caí em cima do seu quengo, bem no meio do seu pensadô.    
+* Armando patranha – tramando uma sem vergonhice.    
+* Cabra desassuntado, safadista militante.     
+* Disindivíduo dissimulento.    
+* Urubuzento.     
+* Catimbozêro.     
+* Cara de boi sonso.     
+* Cara de secá pimentêra.    
+* Carcará sanguinolento.     
+* É muita topetice desse cabra dissimulento.     
+* Fio duma mula barranquêra.     
+* Sujeito rapariguêro. Sujeito tretêro, sujeito capadócio no sentido de malandro, espertalhão. (na verdade, o termo é um substantivo pátrio dequem é da capadócia)    
+* Tá armando patranha.    
+* É muita topetice desse cabra safado.    
+* Esse cabra sofre mais que suvaco de alejado.    
+* Roque está com o cano encostado no nosso mucumbú.    
+* Pô rei da carne verde isso num é nada. É dinheirinho de 20 vaca cum bichêra, com mijacão.    
+* História iscabrulenta.    
+* Gabiru dissimulento.    
+* Muié mixiriquenta.    
+* Num vai tê cumeção e muito menos bebeção.    
+* Em boca fechada num entra puêra e nem sai bestêra.    
+* Eu sô que nem coquêro véio: verga mais num racha.    
+
+**Viúva Porcina, a teúda e manteúda de sinhozinho malta:**   
+
+* Arre égua.    
+* Porquê você voltou com essa cara de seu malaquias, cadê a minha farofa?     
+* Roque (santeiro) enganbelô a santinha. (filha da pombinha abelha, aquela santa do pau ôco)    
+* Sinal de pouco siso – pouco juízo.    
+* Tá nos azeite hoje hein? Tá bem vestido, tá de rôpa.    
+
+**Professor Astromar:**    
+
+* Estou deveras abichornado com o fato acontecido.
+* Posso penetrar? (para adentrar a casa do prefeito Florindo Abelha) que respondeu: vai, penetra logo, penetra *duma veiz*    
+
+**Cego Jeremias:**     
+
+* De veiz em quando eu trisco    
 
 ## Algumas famílias numerosas de Salto de Pirapora
 - **TURMA DO PEDRO ORIVE:** Francisco, Adauto, Crizólito, Luiz, Delphino, Maria, Horácio (depois tirou o H) e o Degas aqui, Carlinho da Marvina.    
