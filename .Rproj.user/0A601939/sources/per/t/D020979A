@@ -3,7 +3,7 @@
     "path": "C:/Users/Vermelho/OneDrive/GitHub/DonaMalvina/index.Rmd",
     "project_path": "index.Rmd",
     "type": "r_markdown",
-    "hash": "117592634",
+    "hash": "2736513843",
     "contents": "",
     "dirty": false,
     "created": 1638904807377.0,
@@ -12,15 +12,15 @@
     "properties": {
         "source_window_id": "",
         "Source": "Source",
-        "cursorPosition": "32,21",
-        "scrollLine": "7"
+        "cursorPosition": "32,143",
+        "scrollLine": "17"
     },
     "folds": "",
-    "lastKnownWriteTime": 1641320162,
+    "lastKnownWriteTime": 1641491460,
     "encoding": "UTF8",
     "collab_server": "",
     "source_window": "",
-    "last_content_update": 1641320162281,
+    "last_content_update": 1641491460902,
     "read_only": false,
     "read_only_alternatives": []
 }

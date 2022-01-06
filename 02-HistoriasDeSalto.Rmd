@@ -830,16 +830,16 @@ Mais que már lhe pregunte a vossa fia mais véia, aquela que tava encroada, arr
 Puis óia cumpadi, casô cum rapaiz bão que até toca bumbardino na igreja crente. I o mió é que a sogra é podre de rica. Sabe né cumpadi: sogra rica i porca gorda só dá lucro quando morre.    
 Mais cumpade, num teve nem festança?    
 Ché, a sogra é rica mais pense numa muié mão de vaca. O borso dela asque tem cascavézinha dentro, puis num infia a mão nem pá pagá promessa. É bão porque sobra mais pô fio adispois qui ela viajá. Deu umas terra cascaienta po fio prantá mais é na base da meia. Metade pá cada um. I ele inda tem que compra a semente i o adubre. Na hora da coieita num dá nem uma mãozinha. Pudia arrumá uns camarada dela qui é o que num farta. Véia pão dura memo.     
-Intão fica ansim cumpadre. Vô pegá o eito inhante da chuva. Apareça c´a cumadre pá nóis prosiá, tumá um café cum bolinho de chuva. Pamorde que a criança gosta quando tem visita pá cumê umas coisa deferente.     
+Intão fica ansim cumpadre. Vô pegá o eito inhante da chuva. Apareça c´a cumadre pá nóis prosiá, tumá um café cum bolinho de chuva. Pamorde que as criança gosta quando tem visita pá cumê umas coisa deferente.     
 Intão boa caminhada pocê cô seu alimar. Mais vá no trote, num adianta í na carrêra porquê num faiz diferença: mecê adianta o passo e pega a chuva que ia pegá lá na frente do mêmo jeito. Se num trôxe a capa poncho i o chapéu de barbicacho posso cedê pá mecê.
 Num carece, gardecido. Inté a vórta.    
 Inté.     
 
-## Saltopiraporices das antigas - nossas autoridades    
+## Saltopiraporices das antigas: nossas autoridades    
 Como de costume em todas as cidades pequenas, os delegados eram nomeados pela classe política mandante. Ou seja, não eram os delegados *de carreira* como seria mais tarde.    
 Na nossa cidade os delegados foram Artemio Bordieri, Arcidão (sogro do Walter Benedetti) entre outros.    
 Depois veio o primeiro delegado de carreira conhecido como  *Tenentinho*. Acho que o nome era Paulo. Ele revolucionou os métodos para punir os encarcerados. Num caso ele fez o preso medir o perímetro da praça com um palito de fósforo, e outros castigos mais. Era temido e respeitado e na sua época ninguém queria ser preso pois seus castigos eram temidos.     
-Os soldados que me lembro foram o Seu Antídio, super boa praça e de cuja família já falamos. Tinha o folclórico Zé Pilar, o Zé da Pinta,  o Cabo Arlindo e outros não tão conhecidos pois tiveram breves passagens pela cidade. 
+Os soldados que me lembro foram o Seu Antídio, super boa praça e de cuja família já falamos, o folclórico Zé Pilar, o Zé da Pinta,  o Cabo Arlindo e outros não tão conhecidos pois tiveram passagens breves pela cidade. 
 Eram nomeados também os *inspetores de quarteirão*. Isso mesmo: cada quarteirão era vigiado por um inspetor. Os juízes de menores também eram nomeados politicamente. Para mim o mais famoso era o *Nambú* (Misael de Oliveira Andrade) que judiou muito de mim quando intimava os garotos a fornecer cerveja gratuita para ele e o seu séquito no nosso clubinho onde fazíamos malabarismos para equilibrar receita e despesas. Tenho hoje muita amizade com ele. Tiramos até uma foto juntos no bar do Samuel (veja acima, no item sobre o Time dos Paradinhos), há pouco tempo mas ele diz não se lembrar mais de quanto me provocou. Também está com mais de oitenta anos, lutou bravamente com a saúde, quase viajou antes do combinado (Boldrin) mas tá até tomando uma cervejinha. (**Nota do editor:** os problemas de saúde do Nambu são bem antigos, pois me lembro que ele, que era freguês do bar da Dona Rosa, estava sempre "encostado pelo INPS", embora fosse goleiro do time dos Parados.)
 
 ## Modernices (ou não) usadas em Salto de Pirapora     
@@ -872,13 +872,13 @@ Algumas expressões de novelas que viraram quase que Saltopiraporices!
 - **BANDIDO FACINOROSO, CARCARÁ SANGUINOLENTO:** Sinhozinho Malta ao se referir a Roque Santeiro.    
 - **JENIPAPANÇA:** Quando era convidado para tomar licor de jenipapo na casa das solteironas *encroadas* (Alvarenga e Ranchinho). Jenipapança  tinha sentido dúbio, carregada de malícia e aquela piscada de olho do Coronel, muito da sem vergonha como diria o próprio.    
 
-**Novela roque santeiro:**    
+**Novela Roque Santeiro:**    
 
 **Falas célebres do Sinhozinho Malta**   
 
 * A porcina se meteu numa *bananosa*.   
 * A casa vai caí em cima do seu quengo, bem no meio do seu pensadô.    
-* Armando patranha – tramando uma sem vergonhice.    
+* Tá armando patranha – tramando uma sem vergonhice.    
 * Cabra desassuntado, safadista militante.     
 * Disindivíduo dissimulento.    
 * Urubuzento.     
@@ -889,7 +889,6 @@ Algumas expressões de novelas que viraram quase que Saltopiraporices!
 * É muita topetice desse cabra dissimulento.     
 * Fio duma mula barranquêra.     
 * Sujeito rapariguêro. Sujeito tretêro, sujeito capadócio no sentido de malandro, espertalhão. (na verdade, o termo é um substantivo pátrio dequem é da capadócia)    
-* Tá armando patranha.    
 * É muita topetice desse cabra safado.    
 * Esse cabra sofre mais que suvaco de alejado.    
 * Roque está com o cano encostado no nosso mucumbú.    
@@ -916,9 +915,10 @@ Algumas expressões de novelas que viraram quase que Saltopiraporices!
 
 **Cego Jeremias:**     
 
-* De veiz em quando eu trisco    
+* De *veiz* em quando eu trisco    
 
 ## Algumas famílias numerosas de Salto de Pirapora
+
 - **TURMA DO PEDRO ORIVE:** Francisco, Adauto, Crizólito, Luiz, Delphino, Maria, Horácio (depois tirou o H) e o Degas aqui, Carlinho da Marvina.    
 - **TURMA DO FOGÃO:** Do casamento do nhô Marcílio (trabalhou na Incalesa) coá Nhá Aurora nasceu a *renca* de filhos: Dito Fogão, Dáia, Martinho, Messia e Nemía, Misake, Zadi (casou com o Dito Bode), Davi e Elia. Nove filhos: só perdeu para o Pedro Orive e Marvina: dez filhos. 
 - **TURMA DO JOÃO DA NHÁ COTA:** Ovídio, Sizina, Dorival, Balaio (Pedro Geraldo) e Ana, que foi casada com o maledetto João do Broco. 
