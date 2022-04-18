@@ -100,6 +100,9 @@ excursão-prá-santos
 a-fogueira-de-são-joão-no-sítio-do-romãozinho
 outras-histórias-de-salto-de-pirapora
 saltopiraporices-gírias-e-expressões-próprias-e-da-região
+gírias-e-ditos-baseados-no-linguajar-dos-escravizados
+marvinices
+pedrourivices
 saltopiraporice-de-raiz-história-do-sarto-nos-modo-do-caipira-falá
 saltopiraporices-das-antigas-nossas-autoridades
 modernices-ou-não-usadas-em-salto-de-pirapora
@@ -108,3 +111,5 @@ algumas-famílias-numerosas-de-salto-de-pirapora
 carlos-zéfiro-e-a-barbearia-do-romãozinho
 história-do-vô-batistinha
 curiosidades-da-região
+bares-que-marcaram-época-em-salto-de-pirapora
+armazéns-armarinhos-e-vendas-de-antigamente-no-sarto
