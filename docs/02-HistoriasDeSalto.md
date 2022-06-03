@@ -625,7 +625,23 @@ Procurei fazer um registro das gírias e maneirismos que ouvi na convivência co
 - **DÁ O TAPA E ESCONDE A MÃO:**    
 - **QUATRO ZÓIO:** Para quem usa óculos     
 - **CORPO DE CARRINHO DE SORVETE DA KIBON:** Para as retilíneas      
-- **CORPITCHO DE BUJÃO DE GÁS:** Para as gordinhas      
+- **ESCALAFOBÉTICO** - Esquisito, estranho, destrambelhado. 
+- **LAZAROTO** – Uma corruptela de lazarento. A palavra  original  designa o doente do mal de Chagas ou de São Lázaro que sofria da doença. Tornou-se um palavrão de xingamento assim como filho da puta. Alguns não querendo pronunciar a pesada palavra usavam o meio termo de “lazaroto”, numa tentativa de  amenizar a pronúncia da palavra original.    
+- **CAMA DE GATO** – Uma brincadeira de mau gosto para derrubar os colegas: um garoto se agacha *de quatro* atrás da vítima  incauta e outro o empurra por cima do agachado. No futebol é um termo muito usado.     
+- **CRUIZ CREDO AVE MARIA** – Expressão usada para espanto principalmente para  pessoas feias. Também para histórias do além.     
+- **FAZENDO FAROL** – Nos leilões ou comércio de mercadorias era contratado um indivíduo para dar lances ou elogiar as mercadorias. Era o farol, ou seja iluminava, ou melhor estimulava os fregueses a adquirir o produto anunciado. Hoje o termo é usado para sujeito exibido *metido a sebo*.     
+- **METIDO A SEBO** – Ouvi muito essa expressão mas nunca compreendia  o sentido, pois sebo é coisa nojenta, mal cheirosa e grudenta. Dias atrás me deu o estalo: A expressão devia ser *metido a sê-lo* que  na repetição do boca a boca do populacho  as pessoas entendiam como *metido a sebo*. Ou pode ter a conotação de sujeito pegajoso, *grudento* mesmo. Dedução brilhante de CAS: Carlos Antunes de Souza, o Degas aqui. Nem o Professor Google fez essa ilação.    
+- **IMPANZINADO** – *de bucho cheio*, bem sastifeito ou *quereno gorfá* (vomitar)     
+- **O TUFO DE BÃO** – Expressão muito usada pelo Chiquinho da Estefânia, irmão do Zé Dias e Roque Dias e outra imensa prole. 
+Também usava a expressão **Mundiar de cupim** quando queria dizer que uma coisa era excepcionalmente boa. Deduzi que na busca de iscas para pescar, usava a expressão quando encontrava um cupinzeiro farto de bichinhos.      
+- **PARTINDO DE BOA** – Expressão muito usada pelo Paulinho Mixirica, figura folclórica que já descrevemos. Ao se referir à uma mulher com atributos físicos exuberantes ele diz *Tá partino de boa* como uma fruta bem madura no pé que chega a partir no auge da *matureza*. Acabo de criar um neologismo. Vou registrar a patente.     
+- **MOCORONGO** – Sujeito roceiro, simplório, ingênuo, imaturo. No Rio de Janeiro pardo ou negro.     
+- **ZONA DO AGRIÃO** – Em bom *futebolês*, a grande área onde se acotovelam defensores e atacantes. Credita-se a criação à João Saldanha, polêmico técnico carioca que chegou a jurar que Pelé estaria cego. Isso antes da maravilhosa performance do Rei na Copa de 70, no México.(**Nota do editor:** a hstória da cegueira do Pelé já está escrita, com detalhes, em algum lugar destas páginas!)     
+- **RESINGUEIRO OU RESINGUENTO** – Implicante. Criador de caso. Direto do vernáculo de Sinhozinho Malta, pois o termo não tem registro na língua portuguesa.      
+- **DIAÇÃOZINHA** – Vernáculo caipirês. Vem de judiação, ou judiaria. *Judiação do minino, diaçãozinha*. Também não existe no léxico português.    
+- **ISTORDIA** – Corruptela *caipiresca* de outro dia. *Istordia mêmo fomo tomá umas pinga na venda do Gentirlão da Pontiarta*.   
+- **FUNHANHADO OU ENFUNHANHADO** – Fudido, arregaçado, em mau estado.     
+- **CORPITCHO DE BUJÃO DE GÁS:** Para as gordinhas.      
 - **CAMBITO:** Pernas de *cambito*. Para as magrelas. No saltopiraporês *cambito* é um pedaço de vara, de uns 40 centímetros que é usado para *cochar* a corda de uma carga e estirá-la. Como é uma vara fina surgiu a analogia com as pernas finas das magrelas.  O gambito na linguagem do xadrez, Gambito (com g) é uma jogada em que o peão defende o rei.     
 - **SACO DE OSSO:** Também para magrelas ou magrelos.     
 - **SENTA A PUA:** Seria como *manda bala*, desce o cacete.
@@ -754,7 +770,6 @@ Dona Marvina também tinha seus *ditos* e expressões peculiares!!
 - **BOA BISCA:** Aquele sujeito não é boa bisca.    
 - **ISPICULA MACHO:** Para meninos que viviam fazendo perguntas o tempo todo. Imagino que o ispicula venha de especular, indagar, perguntar.     
 - **MEIO AÉREO:** Para sujeito desligado, por fora, ou seja que vive voando baixo.    
-- **MIJÔ FORA DA PICHORRA:** Deu pá tráis, deu bola fora, não sustentou o que tinha dito.    
 - **NÃO DÁ PARA TIRAR LEITE DE PEDRA:** Não dá para fazer milagres. O dinheiro acabou, não tem como fabricar.    
 - **NUM TÁ ESCRITO NA TESTA:** Não dá para saber se a pessoa é boa apenas pelas aparências.     
 - **MEIO AVOADA:** Meio aloprada.     
@@ -774,11 +789,14 @@ Dona Marvina também tinha seus *ditos* e expressões peculiares!!
 - **TÔ VENDENDO PELO PREÇO QUE EU COMPREI:** Quando contava um *causo* e alguém começava a duvidar da história. Aliás eu odeio essa postura quando conto alguma coisa e ouço: Será que é verdade? Não pode ser, é impossível. Costumo responder com a expressão *malviniana* e digo que não fui e nem vou investigar nem fazer interrogatório aos personagens da história.     
 - **A PORTA DA RUA É A SERVENTIA DA CASA:** Quando a conversa de uma visita não estava do seu gosto ou quando nós reclamávamos de alguma coisa.    
 - **MANTÊGA DERRETIDA:** Quando uma criança (inclusive eu) começava a chorar sem motivo.    
-- **SAIU COM DUAS QUENTE E TREIS FERVENDO** - (COM ERRO DE CONCORDÂNCIA MESMO)  Se deu mal, *tomô no fiantam*. Em tempo: Dona Malvina nunca usou esse sinônimo para a expressão expressão. Abominava termos chulos. Nesse ponto era sofisticada.   
+- **SAIU COM DUAS QUENTE E TREIS FERVENDO** - (COM ERRO DE CONCORDÂNCIA MESMO)  Se deu mal, *tomô no fiantam*. Em tempo: Dona Malvina nunca usou esse sinônimo para a expressão.Abominava termos chulos. Nesse ponto era sofisticada.   
 - **VOCÊ NUM SE ENXERGA?** – Quando fazia pouco de uma pessoa que queria namorar alguém, ou mesmo para desmanchar *o topete* de algum(a) engraçadinho(a).   
 - **CRUIZ CREDO AVE-MARIA** – na linha do  Deus me livre e guarde acompanhado do indefectível sinal da cruz (se benzendo).  Creio em Deus Pai – Também acompanhado do sinal da cruz.    
 - **FIÓTE DE CRUIZ CREDO** – Para pessoas muito feias.    
 - **PAU DE VIRÁ TRIPA** – Assim chamavam os magricelas. Uma alusão a um pedaço de pau fininho usado para virar a tripa no avesso para fazer o *chouriço* (sangue de porco cozido).    
+- **PURGANTE** – Eita, que sujeito purgante. Chato, duro de engolir ou literalmente: que faz *cagar* desenfreadamente.    
+- **É IVÊ FULANO** – Caipirês autêntico de: É ver fulano, ou é como ver fulano. Dona Malvina usava muito. (**Nota do editor:** ou que é parecido com fulano).    
+- **OH FEIÇÃO** – A frase completa seria: *Você é a feição de fulano* mas permaneceu na forma abreviada. Feição para quem não conhece é o rosto da pessoa. 
 
 ## Pedrourivices
 
@@ -844,6 +862,8 @@ O vocabulário do Pedro Ourives era bem característico, peculiar e criativo!
 - **VAI CAGÁ NO MATO** – Prescinde a explicação.    
 - **ARMÁ UM LAÇO** – O ato de defecar na visão dele simula a armação do laço de boi.     
 - **UMA NINHADA BOA** – O mesmo sentido de armar um laço.    
+- **FOI PEGADO À LAÇO** - Para designar pessoas grosseiras, sem educação.  O termo é pejorativo mas na época não o era. Nas gírias dos escravizados fica melhor explicado.    
+- **GAVOLA** – Cara que se gaba: gabola.
 
 ## Saltopiraporice de raiz: História do Sarto nos modo do  caipira falá   
 Vamos criar personagens fictícios para reproduzir uma imaginária conversa entre pessoas tipicamente do sítio. Caipira já foi depreciativo mas hoje todos temos orgulho de nossas origens e o campo, o sítio e a roça estão na moda. Não na moda dos sertanojos e breganejos mas sim na moda para os que apreciam a autenticidade das pessoas, seu falar, seus usos e costumes. Vamos lá então:    
@@ -876,7 +896,7 @@ Como de costume em todas as cidades pequenas, os delegados eram nomeados pela cl
 Na nossa cidade os delegados foram Artemio Bordieri, Arcidão (sogro do Walter Benedetti) entre outros.    
 Depois veio o primeiro delegado de carreira conhecido como  *Tenentinho*. Acho que o nome era Paulo. Ele revolucionou os métodos para punir os encarcerados. Num caso ele fez o preso medir o perímetro da praça com um palito de fósforo, e outros castigos mais. Era temido e respeitado e na sua época ninguém queria ser preso pois seus castigos eram temidos.     
 Os soldados que me lembro foram o Seu Antídio, super boa praça e de cuja família já falamos, o folclórico Zé Pilar, o Zé da Pinta,  o Cabo Arlindo e outros não tão conhecidos pois tiveram passagens breves pela cidade. 
-Eram nomeados também os *inspetores de quarteirão*. Isso mesmo: cada quarteirão era vigiado por um inspetor. Os juízes de menores também eram nomeados politicamente. Para mim o mais famoso era o *Nambú* (Misael de Oliveira Andrade) que judiou muito de mim quando intimava os garotos a fornecer cerveja gratuita para ele e o seu séquito no nosso clubinho onde fazíamos malabarismos para equilibrar receita e despesas. Tenho hoje muita amizade com ele. Tiramos até uma foto juntos no bar do Samuel (veja acima, no item sobre o Time dos Paradinhos), há pouco tempo mas ele diz não se lembrar mais de quanto me provocou. Também está com mais de oitenta anos, lutou bravamente com a saúde, quase viajou antes do combinado (Boldrin) mas tá até tomando uma cervejinha. (**Nota do editor:** os problemas de saúde do Nambu são bem antigos, pois me lembro que ele, que era freguês do bar da Dona Rosa, estava sempre "encostado pelo INPS", embora fosse goleiro do time dos Parados.)
+Eram nomeados também os *inspetores de quarteirão*. Isso mesmo: cada quarteirão era vigiado por um inspetor. Os juízes de menores também eram nomeados politicamente. Para mim o mais famoso era o *Nambú* (Misael de Oliveira Andrade) que judiou muito de mim quando intimava os garotos a fornecer cerveja gratuita para ele e o seu séquito no nosso clubinho onde fazíamos malabarismos para equilibrar receita e despesas. Tenho hoje muita amizade com ele. Tiramos até uma foto juntos no bar do Samuel (veja acima, no item sobre o Time dos Paradinhos), há pouco tempo mas ele diz não se lembrar mais de quanto me provocou. Também está com mais de oitenta anos, lutou bravamente com a saúde, quase viajou antes do combinado (Boldrin) mas tá até tomando uma cervejinha. (**Nota do editor:** os problemas de saúde do Nambu são bem antigos, pois me lembro que ele, que era freguês do bar da Dona Rosa, estava sempre *encostado pelo INPS*, embora fosse goleiro do time dos Parados.)
 
 ## Modernices (ou não) usadas em Salto de Pirapora     
 - **JACARÉ QUE DORME DE BARRIGA PRÁ CIMA VIRA BOLSA DE MADAME:** Autoexplicativa.    
