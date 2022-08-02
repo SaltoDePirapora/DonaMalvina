@@ -1,0 +1,14 @@
+---
+book_filename: 'Dona_Malvina'
+language:
+  tables: yes
+  label:
+    fig:  "Figura "
+  ui:
+    chapter_name: "Capítulo - "
+output_dir: "docs"
+qmd_files: ["index.qmd","01-OsOurive.qmd","02-historiasdesalto.qmd"]
+clean: [historias.bbl]
+new_session: yes
+delete_merged_file: TRUE
+---
