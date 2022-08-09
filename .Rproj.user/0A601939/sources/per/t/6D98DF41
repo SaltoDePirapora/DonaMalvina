@@ -3,7 +3,7 @@
     "path": "C:/Users/Vermelho/OneDrive/GitHub/DonaMalvina/02-HistoriasDeSalto.Rmd",
     "project_path": "02-HistoriasDeSalto.Rmd",
     "type": "r_markdown",
-    "hash": "1688261614",
+    "hash": "1050889851",
     "contents": "",
     "dirty": false,
     "created": 1659901442727.0,
@@ -12,8 +12,8 @@
     "properties": {
         "source_window_id": "",
         "Source": "Source",
-        "cursorPosition": "969,198",
-        "scrollLine": "962",
+        "cursorPosition": "292,351",
+        "scrollLine": "292",
         "rmdVisualMode": "false",
         "rmdVisualCollapsedChunks": "",
         "rmdVisualModeLocation": "232580:67436",
@@ -21,11 +21,11 @@
         "docOutlineVisible": "1"
     },
     "folds": "",
-    "lastKnownWriteTime": 1659903729,
+    "lastKnownWriteTime": 1660048701,
     "encoding": "UTF8",
     "collab_server": "",
     "source_window": "",
-    "last_content_update": 1659903730040,
+    "last_content_update": 1660048701382,
     "read_only": false,
     "read_only_alternatives": []
 }

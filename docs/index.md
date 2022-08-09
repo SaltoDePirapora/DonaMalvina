@@ -6,7 +6,7 @@ subtitle: |
 author: |
   <center>![](Imagens/OSaltoCarlinhos.jpg)</center>
   <center><div style="font-size: 25px">Carlos Antunes de Souza</center>
-date: <center>Atualizado em 07 de agosto de 2022</center>
+date: <center>Atualizado em 09 de agosto de 2022</center>
 
 geometry: "left=2cm,right=2cm,top=2cm,bottom=2cm"
 fontsize: 12pt
