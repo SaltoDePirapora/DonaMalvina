@@ -901,6 +901,8 @@ Procurei fazer um registro das gírias e maneirismos que ouvi na convivência co
 
 -   **FUNHANHADO OU ENFUNHANHADO** -- Fudido, arregaçado, em mau estado.
 
+-   **CUZINHÁ O GALO** -- Quando alguém estava enrolando no serviço se dizia: Ele tá cuzinhando o galo. Cozinhar galo é demorado, enrolado.
+
 ## Gírias e ditos baseados no linguajar dos escravizados
 
 Observem que tentarei usar o termo *escravizado* ao invés de *escravo* pois este tem conotação pejorativa, uma vez que foram *escravizados à força, com muita violência*. Leia a história de **Kunta Kintê** no romance **Raízes: A saga de uma família americana** e vai entender todo o processo da escravização desde a caçada à laço na África, a torturante viagem de navio e depois os maus tratos dos seus *donos*.
@@ -958,16 +960,7 @@ Dona Marvina também tinha seus *ditos* e expressões peculiares!!
 
 O vocabulário do Pedro Ourives era bem característico, peculiar e criativo!
 
--   
-
-
-    	
-    	
-    	
-    	
-
-- **XEPÊRA VÉIA** - Usada para pessoas que vivem pedindo coisas de graça, seja
-    comida ou outros objetos. Vem da palavra xêpa que é a comida servida em quartel. Ou sobra de alimento não consumido. Se diz *tá na hora da xêpa*. Também ficou conhecida numa novela chamada Dona Xêpa.
+-   **XEPÊRA VÉIA** - Usada para pessoas que vivem pedindo coisas de graça, seja comida ou outros objetos. Vem da palavra xêpa que é a comida servida em quartel. Ou sobra de alimento não consumido. Se diz *tá na hora da xêpa*. Também ficou conhecida numa novela chamada Dona Xêpa.
 
 -   **CAIPIRA DO RABO GROSSO:**\
 
@@ -1023,7 +1016,7 @@ O vocabulário do Pedro Ourives era bem característico, peculiar e criativo!
 
 -   **NUVIA MACHORRA:** Novilha que não pega cria.\
 
--   **RANCOIO:** -- O porco ou boi quando tem uma *capação* defeituosa ou seja inutiliza apenas um *grão* (testículo) continua a dar coberturas porém não *emprenha* as fêmeas; fode mas não cria.\
+-   **RANCOIO:** O porco ou boi quando tem uma *capação* defeituosa ou seja inutiliza apenas um *grão* (testículo) continua a dar coberturas porém não *emprenha* as fêmeas; fode mas não cria.\
 
 -   **SUJEITO CHARQUE:** Cara chato. Deve ser porquê o charque é muito salgado, além de seboso.\
 
@@ -1037,7 +1030,7 @@ O vocabulário do Pedro Ourives era bem característico, peculiar e criativo!
 
 -   **NÃO AGUENTÔ NO PÉ DA ESTRELA:** Com certeza se referia à estrela da espora do cavalo ou mesmo a ponta do ferrão, com que se cutucava os bois de carro. Na viadagem de hoje seria considerado crime por molestar o animal.\
 
--   **HOJE NUM FIZ NEM PÔ FUMO:** -- Quando não se produziu nada ou melhor não ganhou nem *um déstão de mér cuado*.\
+-   **HOJE NUM FIZ NEM PÔ FUMO:** Quando não se produziu nada ou melhor não ganhou nem *um déstão de mér cuado*.\
 
 -   **DA PRATELÊRA DE CIMA:** Para pessoas de classe mais alta, ou mais refinadas ou cultas.\
 
@@ -1092,6 +1085,10 @@ O vocabulário do Pedro Ourives era bem característico, peculiar e criativo!
 -   **FOI PEGADO À LAÇO** - Para designar pessoas grosseiras, sem educação. O termo é pejorativo mas na época não o era. Nas gírias dos escravizados fica melhor explicado.\
 
 -   **GAVOLA** -- Cara que se gaba: gabola.
+
+**SALVADORICES**
+
+-   **A DOLOROSA** -- Meu irmão Salvador, o Dodô, quando pedia a conta sempre usava essa expressão: *Pode trazê a dolorosa prá nós*?
 
 ## Saltopiraporice de raiz: História do Sarto nos modo do caipira falá
 
@@ -1309,3 +1306,17 @@ As músicas eram divididas em seleções de 5 faixas: de samba, de bolero, de fo
 Outros vieram depois de nós e levaram adiante os planos da nova sede até que conseguiram edificar um excelente prédio com dois pisos. Muitos bailes e eventos *ferveram* nesse local. Pena que essa saudosa época de ouro passou, os bailes se deterioraram e o prédio foi ao chão recentemente e ali permanece um vazio triste, sem ao menos tapumes para esconder o árido local onde tanto festejamos e urramos de prazer e alegria incontáveis vezes. Como dizia o Lilico com seu bumbo: "Tempo bão, num vórta mais...\
 Sou nostálgico mas lembro dessa época com muita alegria. Vivemos nossos momentos numa diversão sadia, sem drogas e sem bebidas fortes que atrapalhasse nosso estrito senso de diversão pura e genuína.\
 (**Nota do editor:** ao final do baile Construção fomos procurar o fusca do Carlinhos estacionado na pracinha em frente à padaria da dona Nena. Surpresa: o *possante* havia desaparecido!! O propretário estava prestes ao suicício quando vimos o fusquinha chegando com um casal a bordo. O cara tinha um carro idêntico, meteu a chave, abriu a porta e deu partida sem problemas. Foi até o Itinga sentindo uma coisa esquisita no pé. Parou e viu o pedal do acelerador em formato de sola do pé, marca registrada do Fusca mais famoso da época. A troca foi feita com as devidas desculpas e nosso amigo Carlinhos não se suicidou e continua forte e rijo até estes dias!!!).
+
+## **O Galo do Ataliba**
+No tradicional arroz com frango da Sexta Feira Santa, a tradição era roubar frangos pela cidade para fazer uma *comizanha* em comemoração ao Sábado de Aleluia. Todos sabiam onde estavam os criadores de frangos e portanto onde roubar. Numa dessas entrando ali pelos fundos da casa do Dionizio Leite, foram roubar na casa do Ataliba, que além de craque do time dos Parados e dono de armazém tinha paixão por galos de raça. Nessa o ladrãozinho pulou no
+quintal dele e subiu numa árvore para subtrair os *penosos*.  
+Pelo escuro recolheu o primeiro que viu e o passou por cima do muro
+para os *receptadores*. Ninguém percebeu que era um galo. Só
+foi constatado o engano na cozinha do Bar do Romãozinho, onde a
+Vanda e a Marlene iriam cuidar de despenar, destrinchar e preparar o
+tão esperado arroz com frango. Só que desta vez tiveram que
+literalmente *cozinhá o galo* e na panela de pressão, pois
+senão o banquete só iria acontecer no dia seguinte pela manhã.   
+Acontece que o tal galo era um animal de estimação do *Taliba* que tinha pago um preço diferenciado pelo mesmo. No sábado à noite nós todos na  tradicional presença na barbearia, já então tocada pelo Renê o Tide, víamos o Taliba passar bufando de raiva e encarando todo mundo com *olhar matador*. Mas ninguém nem piscava. Ele subia e descia numa atitude provocativa esperando que alguém se manifestasse dando uma risadinha ou algo parecido. Nada: fingimos de estátuas com olhar
+de paisagem.   
+Para piorar a situação e melhorar a história, o Ataliba era o sacristão da igreja matriz de Salto de Pirapora e o padre contou toda a história na missa de domingo, passando um *sabão* em toda a turma do arroz com frango. (**Nota do editor:** Felizmente eu não era frequentador de missa e me livrei do *sabão*. Fiquei sabendo só depois porque me contaram!!!)
